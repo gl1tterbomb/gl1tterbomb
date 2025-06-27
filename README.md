@@ -29,8 +29,7 @@ I have ADHD/Autism Lvl 3. No, I never watch these ¨DO I have autism¨ or search
  
 2. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
-3. No DNI needed.. 👍
-   heh I lied, if you're @ccherrypie 
+3. No DNI needed.. 👍 
  
    (I need more booster gold fans or any DC/fantastic 4 fans plsss)
  ___________________________________________________________________________
