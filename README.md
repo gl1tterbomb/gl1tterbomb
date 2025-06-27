@@ -1,4 +1,5 @@
-## ## Booo Jensen and his stand smell very horror. I can smell it far away from here. Yeah yeah, how childish of me.                      
+## ## Hello, Jensen & Jared stans. I heard soup and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.        
+
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
 I love Green Lanterns,and Flash is cool too
