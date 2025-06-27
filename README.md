@@ -15,7 +15,9 @@ Artist
 Puerto rico
 Dyslexia
 
-## Hello, Jensen & Jared stans. I heard soap and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.         
+## Hello, Jensen & Jared stans. I heard soap and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people. 
+
+alr ts so corny ;-;
 
 _______________________________________
 ____________________________________
@@ -38,7 +40,7 @@ idk info?;
 Heyy , a character I kin, cosplay or liked in different media does not make me like a celebrity, especially from Supernatural like Jared, Jensen, Misha, or anyone. Im aware what they done and I do not support the actions of them character's actor or whatever the heck they doing. 
 
 # Jared and Jensen are suck butt don't come after me you Jare x Jensen stans.
- 
+ again, ts so corny ;-;
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
