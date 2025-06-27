@@ -1,6 +1,4 @@
-## jjkaherhrjd
- I don't know, I named my user after a dessert I liked. I'm not very good at making up names.  
-                                           
+## ## Booo Jensen and his fans smell bad. I can smell it far away from here. Yeah yeah, how childish of me.                      
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
 I love Green Lanterns,and Flash is cool too
