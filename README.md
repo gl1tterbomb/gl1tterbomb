@@ -1,4 +1,4 @@
-## ## Booo Jensen and his fans smell bad. I can smell it far away from here. Yeah yeah, how childish of me.                      
+## ## Booo Jensen and his stand smell very horror. I can smell it far away from here. Yeah yeah, how childish of me.                      
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
 I love Green Lanterns,and Flash is cool too
