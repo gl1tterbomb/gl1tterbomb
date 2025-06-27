@@ -1,4 +1,4 @@
-## ## Hello, Jensen & Jared stans. I heard soup and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.        
+## ## Hello, Jensen & Jared stans. I heard soap and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.        
 
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
