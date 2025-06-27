@@ -1,4 +1,4 @@
-## ## Hello, Jensen & Jared stans. I heard soap and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.        
+## ## bananan sisjaisijzkz
 
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
@@ -15,7 +15,10 @@ Artist
 Puerto rico
 Dyslexia
 
- ___________________________________________________________________________
+## Hello, Jensen & Jared stans. I heard soap and water get rid of your stinky smells. I can still smell it far from here. yeah yea, how childish of me. Also stop babying Jensen and Jared, they are both grown ass man, and I have heard they are not good people. Not very good people.         
+
+_______________________________________
+____________________________________
 
 Before you INT;
 
@@ -32,7 +35,9 @@ I have ADHD/Autism Lvl 3. No, I never watch these ¨DO I have autism¨ or search
  
 idk info?;
 
-Heyy , a character I kin, cosplay or liked in different media does not make me like a celebrity, especially from Supernatural like Jared, Jensen, Misha, or anyone. Im aware what they done and I do not support the actions of them character's actor or whatever the heck they doing. Jared and Jensen are suck butt don't come after me you Jare x Jensen stans.
+Heyy , a character I kin, cosplay or liked in different media does not make me like a celebrity, especially from Supernatural like Jared, Jensen, Misha, or anyone. Im aware what they done and I do not support the actions of them character's actor or whatever the heck they doing. 
+
+# Jared and Jensen are suck butt don't come after me you Jare x Jensen stans.
  
  ___________________________________________________________________________
  
