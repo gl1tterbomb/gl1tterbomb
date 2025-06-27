@@ -28,7 +28,13 @@ I have ADHD/Autism Lvl 3. No, I never watch these ¨DO I have autism¨ or search
  
 2. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
-  
+3. No DNI needed 👍I need more booster gold fans or any dc fans plsss
+
+ 
+idk info?;
+
+Heyy , a character I kin, cosplay or liked in different media does not make me like a celebrity, especially from Supernatural like Jared, Jensen, Misha, or anyone. Im aware what they done and I do not support the actions of them character's actor or whatever the heck they doing. Jared and Jensen are suck butt don't come after me you Jare x Jensen stans.
+ 
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
