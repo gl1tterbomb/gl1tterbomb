@@ -23,14 +23,12 @@ ____________________________________
 
 Before you INT; 
 
-1. Please respect my boundaries. I am an insensitve person so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
-
+No DNI needed.. 👍 
  
-2. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
+   I need more booster gold fans or any DC/Marvel fans plsss
 
-3. No DNI needed.. 👍 
- 
-   (I need more booster gold fans or any DC/fantastic 4 fans plsss)
+   Im tired of batfam 
+  
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
@@ -44,7 +42,7 @@ ___________________________________________________________________________
 Fandom I am in: Transformers, Supernatural, DC, Marvel, Monster high, MLP, The boys + others
 ___________________________________________________________________________
 
-Here is a list of kinty;   
+Here is a list of kintp;   
 [Kinlist](https://ang3lcake.straw.page/kins)
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
