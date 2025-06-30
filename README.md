@@ -10,13 +10,11 @@ Some info about me;
 Hihihih! I go by Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
 
 extra?;
-Artist
+
+Am an Artist, I draw on paper
 
 Puerto rico
 
-Dyslexia
-
- ADHD/Autism
 
 Things I like:
 
@@ -24,7 +22,7 @@ uhh I like cool jets n any vehicles
 
 ngh Role playing. I rarely do role-playing and play as characters, but I still like and miss them.
 
-animals and aquatic animals !like lions, sea bunnies, sharks,
+animals and aquatic animals! like lions, sea bunnies, sharks,
 
 bee and puppycat
 
