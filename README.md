@@ -16,7 +16,7 @@ Puerto rico
 
 Dyslexia
 
- ADHD/Autism.
+ ADHD/Autism
 
 _______________________________________
 ____________________________________
@@ -25,9 +25,7 @@ Before you INT;
 
 No DNI needed.. 👍 
  
-   I need more booster gold fans or any DC/Marvel fans plsss
-
-   Im tired of batfam 
+   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam 
   
  ___________________________________________________________________________
  
@@ -39,7 +37,46 @@ No DNI needed.. 👍
 
  
 ___________________________________________________________________________
-Fandom I am in: Transformers, Supernatural, DC, Marvel, Monster high, MLP, The boys + others
+Fandom I am in: 
+
+★  Marvel
+
+★ The boys
+
+★ Avatar: The last Airbender
+
+★ Star Trek
+
+★ Transformers
+
+★ MLP
+
+★ Monster High
+
+★ Supernatural
+
+★Good Omens
+
+★ RDR2
+
+★ Villainous
+
+★ Deltarune
+
+★ Walking dead
+
+★ Gravity Falls
+
+★ Ninjago
+
+★ TMNT
+
+★ LMK
+
+★ Octonauts 
+
+★ house M.D(I'm new]
+
 ___________________________________________________________________________
 
 Here is a list of kintp;   
