@@ -18,6 +18,19 @@ Dyslexia
 
  ADHD/Autism
 
+Things I like:
+
+uhh I like cool jets n any vehicles 
+
+ngh Role playing. I rarely do role-playing and play as characters, but I still like and miss them.
+
+animals and aquatic animals !like lions, sea bunnies, sharks,
+
+bee and puppycat
+
+care bears
+
+Booster gold(Im his number #116 fan trust)
 _______________________________________
 ____________________________________
 
