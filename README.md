@@ -45,6 +45,8 @@ Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
+I do also cross/crackships/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, ships, and headcanons.
+
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
