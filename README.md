@@ -15,6 +15,7 @@ Am an Artist, I draw on paper
 
 Puerto rico
 
+AHDD/Autism
 
 Things I like:
 
