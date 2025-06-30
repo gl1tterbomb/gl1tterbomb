@@ -27,6 +27,10 @@ No DNI needed.. 👍
  
    I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam 
   
+Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
+
+My friends will force me to match with them  👍  👍 
+
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
@@ -76,6 +80,8 @@ Fandom I am in:
 ★ Octonauts 
 
 ★ house M.D(I'm new]
+
+
 
 ___________________________________________________________________________
 
