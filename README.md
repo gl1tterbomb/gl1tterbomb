@@ -36,9 +36,9 @@ ____________________________________
 
 Before you INT; 
 
-No DNI needed.. any fandom can INT 👍 
+No DNI needed.. anyone can INT 👍 
  
-   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam 
+   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam and MCU ;-;
   
 Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
 
