@@ -20,7 +20,7 @@ Things I like:
 
 uhh I like cool jets n any vehicles 
 
-ngh Role playing. I rarely do role-playing and play as characters, but I still like and miss them.
+ngh Roleplay. I rarely do role-playing and play as characters, but I still like and miss them.
 
 animals and aquatic animals! like lions, sea bunnies, sharks,
 
