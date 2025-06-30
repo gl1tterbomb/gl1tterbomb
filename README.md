@@ -28,13 +28,15 @@ bee and puppycat
 
 care bears
 
+I like creating OCS mostly with transformers and superheroes.
+
 Booster gold(Im his number #116 fan trust)
 _______________________________________
 ____________________________________
 
 Before you INT; 
 
-No DNI needed.. 👍 
+No DNI needed.. any fandom can INT 👍 
  
    I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam 
   
