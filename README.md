@@ -1,9 +1,16 @@
 ## ## bananan sisjaisijzkz
 
-[Atabook](https://angelcake.atabook.org/)  || Sorry texts are not showing right now  -      [Strawpage](https://ang3lcake.straw.page)
+
+
+[Atabook](https://angelcake.atabook.org/)  ||  [Strawpage](https://ang3lcake.straw.page)
 
 I love Green Lanterns,and Flash is cool too
-![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
+
+ Here's an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny.
+
+
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/d58ec10c93743b3ac28a4ce429c9cb9ffcd97e70/qBaFCev.gif)
+
 
 
 Some info about me;
@@ -16,6 +23,8 @@ Am an Artist, I draw on paper
 Puerto rico
 
 AHDD/Autism
+
+![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 Things I like:
 
@@ -106,9 +115,4 @@ Here is a list of kintp;
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 
-
-
- Here's an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny.
-
-
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/d58ec10c93743b3ac28a4ce429c9cb9ffcd97e70/qBaFCev.gif)
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/bdd12a4e77645ea51e2a3a08c8b93002aae03304/35034-C134AAEF-EF43-467C-818E-FF4F7A219AAD-0-1470508314.gif)
