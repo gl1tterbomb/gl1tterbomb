@@ -23,7 +23,7 @@ uhh I like cool jets n any vehicles
 
 ngh Roleplay. I rarely do role-playing and play as characters, but I still like and miss them.
 
-animals and aquatic animals! like lions, sea bunnies, sharks,
+I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
 bee and puppycat
 
@@ -106,3 +106,9 @@ Here is a list of kintp;
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 
+
+
+ Here's an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny.
+
+
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/d58ec10c93743b3ac28a4ce429c9cb9ffcd97e70/qBaFCev.gif)
