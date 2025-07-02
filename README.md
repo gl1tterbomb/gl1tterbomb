@@ -6,7 +6,8 @@
 
 I love Green Lanterns,and Flash is cool too
 
- Here's an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny.
+ Here are some things if you want to know about me, if you're too lazy to check on Strawpage. Also, here an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny and its easy for me to spell. 👍
+
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/d58ec10c93743b3ac28a4ce429c9cb9ffcd97e70/qBaFCev.gif)
