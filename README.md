@@ -56,7 +56,7 @@ Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
-I do also cross/crackships/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, ships, and headcanons.
+I do also cross/crackships/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, and headcanons.
 
  ___________________________________________________________________________
  
