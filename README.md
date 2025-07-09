@@ -50,18 +50,14 @@ Before you INT;
 
 1. No DNI needed.. anyone can INT 👍 
 
-2. I block freely
  
- 3. I don't know if that counts as DNI. I won't INT with some doubles. No, I don't hate them, I'm just not a huge fan for some reason. If you're a friend of ours, I don't mind.
-
- 
- 4.   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam and MCU ;-;
+ 2.   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam and MCU ;-;
   
-5. Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
+3. Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
-6. I do also crossover/crackk/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, and headcanons.
+4. I do also crossover/crackk/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, and headcanons.
 
  ___________________________________________________________________________
  
