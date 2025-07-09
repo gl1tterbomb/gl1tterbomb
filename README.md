@@ -52,7 +52,7 @@ Before you INT;
 
 2. I block freely
  
- 3. I don't know if that counts as DNI. I won't INT with doubles. No, I don't hate them, I'm just not a huge fan for some reason. If you're a friend of ours, I don't mind.
+ 3. I don't know if that counts as DNI. I won't INT with some doubles. No, I don't hate them, I'm just not a huge fan for some reason. If you're a friend of ours, I don't mind.
 
  
  4.   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam and MCU ;-;
