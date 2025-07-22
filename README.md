@@ -36,6 +36,8 @@ Please be careful when you try befriending him.
 
 Things I like:
 
+My cool friends
+
 uhh I like cool jets n any vehicles 
 
 ngh Roleplay. I rarely do role-playing and play as characters, but I still like and miss them.
