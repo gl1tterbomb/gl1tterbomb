@@ -32,6 +32,8 @@ AHDD/Autism
 
 
 I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other stuff.
+Please be careful when you try befriending him. Unfortunately, 
+we don't have enough proof to expose him.
 
 Things I like:
 
