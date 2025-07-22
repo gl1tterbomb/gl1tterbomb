@@ -69,7 +69,7 @@ My friends will force me to match with them  👍  👍
 
 4. I do also crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
-5. I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he did.
+5. I block freely. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he did.
 Please be careful when you try befriending him.
 
 ___________________________________________________________________________
