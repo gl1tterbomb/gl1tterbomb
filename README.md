@@ -31,8 +31,7 @@ AHDD/Autism
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 
-I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he did.
-Please be careful when you try befriending him. 
+
 
 Things I like:
 
@@ -68,9 +67,12 @@ Before you INT;
 
 My friends will force me to match with them  👍  👍 
 
-4. I do also crossover/crackk/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, and headcanons.
+4. I do also crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
- ___________________________________________________________________________
+5. I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he did.
+Please be careful when you try befriending him.
+
+___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! 👍
 
