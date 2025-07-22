@@ -31,7 +31,7 @@ AHDD/Autism
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 
-I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other stuff.
+I block freedly. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he he did.
 Please be careful when you try befriending him. Unfortunately, 
 we don't have enough proof to expose him.
 
