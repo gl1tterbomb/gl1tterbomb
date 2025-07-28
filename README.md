@@ -42,7 +42,7 @@ uhh I like cool jets n any vehicles
 my friends, they cool. 
 
 
-ngh Roleplay. I rarely do role-playing and play as characters, but I still like and miss them.
+Roleplay! I rarely do role-playing and play as characters, but I still like and miss them.
 
 I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
