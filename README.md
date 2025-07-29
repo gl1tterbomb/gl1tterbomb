@@ -38,14 +38,12 @@ INTJ
 
 Things I like:
 
-My cool friends
+My cool friends, they are all cool and amazing. 
 
-uhh I like cool jets n any vehicles 
+I enjoy giving fanart and some stuff to friends!
+ 
 
-my friends, they cool. 
-
-
-Roleplay! I rarely do role-playing and play as characters, but I still like and miss them.
+Roleplay! I do role-playing and play as characters, but rarely, but I still like and miss them.
 
 I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
