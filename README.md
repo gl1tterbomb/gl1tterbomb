@@ -43,7 +43,7 @@ My cool friends, they are all cool and amazing.
 I enjoy giving fanart and some stuff to friends!
  
 
-Roleplay! I do role-playing and play as characters, but rarely, but I still like and miss them.
+Roleplay! I do role-playing and play in characters, but rarely, but I still like and miss them.
 
 I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
