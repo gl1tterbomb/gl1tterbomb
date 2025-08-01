@@ -71,6 +71,8 @@ My friends will force me to match with them  👍  👍
 
 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
+5. I block freely
+
 
 ___________________________________________________________________________
  
