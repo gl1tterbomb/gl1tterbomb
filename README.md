@@ -8,7 +8,7 @@ I love Green Lanterns,and Flash is cool too
 
  Here are some things if you'd like to know about me,. scroll down. 
  
- Wait, here an image of a sea bunny! I called it a Sea Bunny because it looks like a bunny and its easy for me to spell. 👍
+ Wait, here is an image of a sea bunny! I called it a Sea Bunny because it's easy for me to spell. 👍
 
 
 
@@ -24,10 +24,11 @@ extra?;
 
 Am an Artist, I draw on paper
 
-Puerto rico
+Spanish is my first language, and I was born in Puerto Rico 
 
 AHDD/Autism
 
+Dyslexia
 
 INTJ
 
@@ -70,8 +71,6 @@ My friends will force me to match with them  👍  👍
 
 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
-5. I block freely. If I found out any of you had an alt account just to stalk me and my friends. I'm talking about you, @ccherrypie. And I'll block your friends ass too 😭. No, I'm not blocking him for proshipping. I'm blocking him for other things he did.
-Please be careful when you try befriending him.
 
 ___________________________________________________________________________
  
