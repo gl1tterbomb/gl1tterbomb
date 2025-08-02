@@ -48,13 +48,9 @@ Roleplay! I do role-playing and play in characters, but rarely, but I still like
 
 I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
-bee and puppycat
 
-care bears
-
-I like creating OCS mostly with transformers and superheroes.
-
-Booster gold(Im his number #116 fan trust)
+ OCS is cool, they are one of my favorite parts to create. I also make transformer oc and dc.
+My fav character is Hal Jordan and Booster Gold (Im his number #116 fan trust)
 _______________________________________
 ____________________________________
 
@@ -63,9 +59,9 @@ Before you INT;
 1. No DNI needed.. anyone can INT 👍 
 
  
- 2.   I need more booster gold fans or any DC/Marvel fans plsss  Im tired of batfam and MCU ;-;
+ 2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-3. Let u know Im not into eddsoworld, COD, FNF and some other fandom ;-;
+3. Let u know Im not into eddsoworld, COD, FNF, and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
