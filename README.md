@@ -59,14 +59,22 @@ Before you INT;
 1. No DNI needed..? ; I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as us 👍.
 
  
- 3.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
+ 2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-4. Let u know Im not into eddsoworld, COD, FNF, and some other fandom ;-;
+3. Let u know Im not into eddsoworld, COD, FNF, and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
+
+5. I make dry responses and feel awkward around new people, especially with other friends I'm not close to. It will take a while to 
+
+
+
+6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc ect. If you get tired of it, just let me know, plssss.
+
+7. Sometimes I make jokes and say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
 
 
 ___________________________________________________________________________
