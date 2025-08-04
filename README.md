@@ -56,12 +56,17 @@ ____________________________________
 
 Before you INT; 
 
-1. No DNI needed..? ; I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as us 👍.
+1. A few DNI lists;
 
+1. I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as us 👍.\
+2.  Under the age of 17, do not interact unless we know you.
+   
+_______________________________________
+____________________________________
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-3. Let u know Im not into eddsoworld, COD, FNF, Dandy world, and some other fandom ;-;
+3. Let u know I'm not into eddsoworld, COD, FNF, Dandy world, and some other fandom;-;
 
 My friends will force me to match with them  👍  👍 
 
