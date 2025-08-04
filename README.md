@@ -61,7 +61,7 @@ Before you INT;
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-3. Let u know Im not into eddsoworld, COD, FNF, and some other fandom ;-;
+3. Let u know Im not into eddsoworld, COD, FNF, Dandy world, and some other fandom ;-;
 
 My friends will force me to match with them  👍  👍 
 
