@@ -58,7 +58,10 @@ Before you INT;
 
 1. A few DNI lists;
 
+
 1. I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as us 👍.\
+
+
 2.  Under the age of 17, do not interact unless we know you.
    
 _______________________________________
