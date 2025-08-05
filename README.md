@@ -28,8 +28,6 @@ Spanish is my first language, and I was born in Puerto Rico
 
 AHDD/Autism
 
-Dyslexia
-
 INTJ
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
