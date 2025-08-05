@@ -54,7 +54,7 @@ ____________________________________
 
 Before you INT; 
 
-★.1. No DNi needed! I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as us 👍.\
+★.1. No DNi needed! I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\
 
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
