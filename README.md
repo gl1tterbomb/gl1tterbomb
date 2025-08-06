@@ -85,6 +85,8 @@ ___________________________________________________________________________
 ___________________________________________________________________________
 Fandom I am in: 
 
+★ Rescue bots/Transformers
+
 ★  Marvel
 
 ★ DC
@@ -94,9 +96,6 @@ Fandom I am in:
 ★ Avatar: The last Airbender
 
 ★ Star Trek
-
-★ Transformers
-
 
 ★ Monster High
 
