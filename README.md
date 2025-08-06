@@ -24,7 +24,7 @@ extra?;
 
 Am an Artist, I draw on paper
 
-Spanish is my first language, and I was born in Puerto Rico 
+Spanish is my mother tongue, and I was born in Puerto Rico 
 
 AHDD/Autism
 
