@@ -87,7 +87,9 @@ Fandom I am in:
 
 ★  Marvel
 
-★ The boys
+★ DC
+
+★ Octonauts
 
 ★ Avatar: The last Airbender
 
@@ -95,7 +97,6 @@ Fandom I am in:
 
 ★ Transformers
 
-★ MLP
 
 ★ Monster High
 
@@ -111,17 +112,15 @@ Fandom I am in:
 
 ★ Walking dead
 
-★ Gravity Falls
-
 ★ Ninjago
 
 ★ TMNT
 
 ★ LMK
 
-★ Octonauts 
-
 ★ house M.D(I'm new]
+
+★ Others
 
 
 
