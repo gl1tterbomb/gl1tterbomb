@@ -18,7 +18,7 @@ I love Green Lanterns,and Flash is cool too
 
 Some info about me;
 
-Hihihih! I go by Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
+Hihihihi! My name is Archer, and I also go by other names, like Mou, Hal, Roddy, and more... and I'm fine with people calling me by kin names or any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
 
 extra?;
 
@@ -54,7 +54,7 @@ ____________________________________
 
 Before you INT; 
 
-★.1. No DNi needed! I don't know if doubles count, but I won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\
+★.1. No DNI needed! Doubles? uhh, Depends? I don't know if it counts, but we won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\ -- Mou
 
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
@@ -70,7 +70,7 @@ Before you INT;
 
 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc ect. If you get tired of it, just let me know, plssss.
 
-7. Sometimes I make jokes and say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
+7. Sometimes I say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
 
 
 ___________________________________________________________________________
