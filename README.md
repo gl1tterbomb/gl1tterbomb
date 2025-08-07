@@ -22,8 +22,6 @@ Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Haro
 
 extra?;
 
-Am an Artist, I draw on paper
-
 Spanish is my mother tongue, and I was born in Puerto Rico 
 
 AHDD/Autism
