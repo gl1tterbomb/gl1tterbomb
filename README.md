@@ -13,7 +13,7 @@
 
 I'm the guard 
 
-![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)(https://github.com/metaleaterr/StaticSh0ck/raw/refs/heads/main/538E1F03-0C04-46FB-BE2F-05D543C70D20.jpeg)
+![image_alt](https://github.com/metaleaterr/StaticSh0ck/raw/refs/heads/main/538E1F03-0C04-46FB-BE2F-05D543C70D20.jpeg)
 
 
  Here are some things if you'd like to know about me,. scroll down. 
