@@ -8,9 +8,9 @@ I love Green Lanterns,and Flash is cool too
 
  Here are some things if you'd like to know about me,. scroll down. 
  
- Wait, here is an image of a sea bunny! I called it a Sea Bunny because it's easy for me to spell. 👍
+ Some old imge of our friends ^^
 
-
+ Hal pointing real gun at batman...
 
 ![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)
 
