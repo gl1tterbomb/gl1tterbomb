@@ -5,7 +5,7 @@
 [Atabook](https://angelcake.atabook.org/)  ||  [Strawpage](https://ang3lcake.straw.page)
 
  
- Some old imge of our friends ^^
+ Some old pics of our friends ^^
 
  Me, Hal pointing real gun at batman...
 
