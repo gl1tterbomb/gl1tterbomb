@@ -12,7 +12,7 @@ I love Green Lanterns,and Flash is cool too
 
 
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/d58ec10c93743b3ac28a4ce429c9cb9ffcd97e70/qBaFCev.gif)
+![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)
 
 
 
