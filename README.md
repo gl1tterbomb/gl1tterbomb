@@ -16,7 +16,7 @@ I'm the nightwing :3
 ![image_alt](https://github.com/metaleaterr/StaticSh0ck/raw/refs/heads/main/538E1F03-0C04-46FB-BE2F-05D543C70D20.jpeg)
 
 
- Here are some things if you'd like to know about me,. scroll down. 
+ Anyway, here are some things if you'd like to know about me,. scroll down. 
 
 
 Yesss I love Green Lanterns,and Flash is cool too!
