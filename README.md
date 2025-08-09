@@ -7,7 +7,7 @@
  
  Some old imge of our friends ^^
 
- Hal pointing real gun at batman...
+ Me, Hal pointing real gun at batman...
 
 ![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)
 
