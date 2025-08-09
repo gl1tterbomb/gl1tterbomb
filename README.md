@@ -4,9 +4,6 @@
 
 [Atabook](https://angelcake.atabook.org/)  ||  [Strawpage](https://ang3lcake.straw.page)
 
-I love Green Lanterns,and Flash is cool too
-
- Here are some things if you'd like to know about me,. scroll down. 
  
  Some old imge of our friends ^^
 
@@ -14,6 +11,15 @@ I love Green Lanterns,and Flash is cool too
 
 ![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)
 
+I'm the guard 
+
+![image_alt](https://raw.githubusercontent.com/metaleaterr/StaticSh0ck/refs/heads/main/IMG_1914.jpeg)(https://github.com/metaleaterr/StaticSh0ck/raw/refs/heads/main/538E1F03-0C04-46FB-BE2F-05D543C70D20.jpeg)
+
+
+ Here are some things if you'd like to know about me,. scroll down. 
+
+
+Yesss I love Green Lanterns,and Flash is cool too!
 
 
 Some info about me;
@@ -57,7 +63,7 @@ Before you INT;
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-3. Let u know I'm not into eddsoworld, COD, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them  👍  👍 
+3. Let u know I'm not into eddsoworld, COD, Squid game, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them  👍  👍 
 
 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
