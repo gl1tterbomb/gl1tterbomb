@@ -2,7 +2,7 @@
 
 
 
-[Atabook](https://angelcake.atabook.org/)  ||  [Strawpage](https://ang3lcake.straw.page)
+[Atabook](https://angelcake.atabook.org/)  
 
  
  Some old pics of our friends ^^
