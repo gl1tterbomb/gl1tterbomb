@@ -4,8 +4,7 @@
 
 [Atabook](https://angelcake.atabook.org/)  
 
- 
- Some old pics of our friends ^^
+
 
  Me, Hal pointing real gun at batman...
 
