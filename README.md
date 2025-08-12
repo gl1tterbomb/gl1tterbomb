@@ -6,8 +6,6 @@
 
 
 
- Me, Hal pointing real gun at batman...
-
  Anyway, here are some things if you'd like to know about me,. scroll down. 
 
 
