@@ -119,9 +119,5 @@ Fandom I am in:
 
 ___________________________________________________________________________
 
-Here is a list of kintp;   
-[Kinlist](https://ang3lcake.straw.page/kins)
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
-
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/bdd12a4e77645ea51e2a3a08c8b93002aae03304/35034-C134AAEF-EF43-467C-818E-FF4F7A219AAD-0-1470508314.gif)
