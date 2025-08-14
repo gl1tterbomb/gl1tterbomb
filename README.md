@@ -2,9 +2,8 @@
 
 
 
-[Atabook](https://angelcake.atabook.org/)  
-
-[Strawpage](https://ang3lcake.straw.page/)
+[Atabook](https://angelcake.atabook.org/)   
+     ||     [Strawpage](https://ang3lcake.straw.page/)
 
  Anyway, here are some things if you'd like to know about me,. scroll down. 
 
