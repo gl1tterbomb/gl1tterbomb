@@ -48,7 +48,7 @@ ____________________________________
 
 Before you INT; 
 
-★.1. No DNI needed! Doubles? uhh, Depends? I don't know if it counts, but we won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\ -- Mou
+★.1. *thinks* Doubles? uhh, Depends? I don't know if it counts, but we won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\ -- Mou
 
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
