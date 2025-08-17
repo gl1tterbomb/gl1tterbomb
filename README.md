@@ -1,7 +1,5 @@
 ## ## bananan sisjaisijzkz
 
-If you are an ex friend, I forgive you and I am sorry 4 the hotmess. I wish you all the best - Mou ^^
-
 [Atabook](https://angelcake.atabook.org/)   
      ||     [Strawpage](https://ang3lcake.straw.page/)
 
@@ -117,6 +115,6 @@ Fandom I am in:
 
 
 ___________________________________________________________________________
-
+Helllo! If you are an ex friend, I forgive you and I am sorry 4 the hotmess. I wish you all the best - Mou ^^
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
