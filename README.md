@@ -1,6 +1,6 @@
 ## ## bananan sisjaisijzkz
 
-
+A guy who’s obsessed with green lanterns and transformers. :V  My english is so bad im sorry
 
 [Atabook](https://angelcake.atabook.org/)   
      ||     [Strawpage](https://ang3lcake.straw.page/)
