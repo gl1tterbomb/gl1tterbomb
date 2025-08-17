@@ -1,7 +1,6 @@
 ## ## bananan sisjaisijzkz
 
-A guy who’s obsessed with green lanterns and transformers. :V  My english is so bad im sorry
-
+If you are an ex friend, I forgive you and I am sorry. I wish you all the best - Mou ^^
 [Atabook](https://angelcake.atabook.org/)   
      ||     [Strawpage](https://ang3lcake.straw.page/)
 
