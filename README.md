@@ -11,15 +11,13 @@ Yesss I love Green Lanterns,and Flash is cool too!
 
 Some info about me;
 
-Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
+Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. ^_*
 
 extra?;
-
+INTJ
 Spanish is my mother tongue, and I was born in Puerto Rico 
 
-AHDD/Autism
-
-INTJ
+AHDD/Autism spectrum
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
