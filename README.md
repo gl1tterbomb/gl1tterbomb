@@ -11,7 +11,7 @@ Yesss I love Green Lanterns,and Flash is cool too!
 
 Some info about me;
 
-Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. ^_*
+Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward around everypony I dont know, so it would take me a while to interact with them. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. ^_*
 
 extra?;
 INTJ
