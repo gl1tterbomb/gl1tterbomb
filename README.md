@@ -54,7 +54,7 @@ Supernatural fandom for some reasons. You can still INT]
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-3. Let u know I'm not into eddsoworld, COD, Squid game, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them  👍  👍 
+★ 3. Let u know I'm not into Supernatural, eddsoworld, COD, Squid game, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them  👍  👍 
 
 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
@@ -93,8 +93,6 @@ Fandom I am in:
 ★ Star Trek
 
 ★ Monster High
-
-★ Supernatural
 
 ★Good Omens
 
