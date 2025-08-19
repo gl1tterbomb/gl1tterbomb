@@ -45,7 +45,10 @@ ____________________________________
 
 Before you INT; 
 
-★.1. *thinks* Doubles? uhh, Depends? I don't know if it counts, but we won't INT unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\ -- Mou
+★.1. *thinks* Doubles? uhh, Depends? I don't know if it counts, but some of us won't int unless you're a friend of ours, sorry 😞. We don't mind if any of our friends have the same kins as mei 👍.\ -- Mou
+
+[Thin Ice;
+Supernatural fandom for some reasons. You can still INT]
 
  
  2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
