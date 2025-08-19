@@ -118,6 +118,6 @@ Fandom I am in:
 
 
 ___________________________________________________________________________
-Helllo! If you are an ex friend, I forgive you and I am sorry 4 the hotmess. I wish you all the best - Mou ^^
+Helllo! If you are an ex friend, I forgive you and I am sorry. I wish you all the best. except for ccherycake and cainecorse - Archer ^^
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
