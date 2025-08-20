@@ -1,8 +1,10 @@
 ## ## bananan sisjaisijzkz
 
 Name; Mou or Harold/Hal
-
+he/him
 AHDD/Autism spectrum
+
+my friends are very cool
 
  uhh my favorite
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
