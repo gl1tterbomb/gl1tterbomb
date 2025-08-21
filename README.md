@@ -16,7 +16,7 @@ Yesss I love Green Lanterns,and Flash is cool too!
 
 Some info about me;
 
-Hello everypony! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhh, uhhh, my favorite color is orange...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great, my words often come off. I'm kinda awkward around everypony I dont know, so it would take me a while to interact with them. 🫠 Please be patient with me. I love Green Lanterns and alien robots. My friends are very cool. ^_*
+Hello everypony! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great, my words often come off. I'm kinda awkward around everypony I dont know, so it would take me a while to interact with them. 🫠 Please be patient with me. I love Green Lanterns and alien robots. My friends are very cool. ^_*
 
 [ extra?; ]
 
