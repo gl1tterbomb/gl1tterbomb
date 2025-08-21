@@ -2,7 +2,7 @@
 
 [Atabook](https://angelcake.atabook.org/)   
      
-Here to draw if you wanna draw [Strawpage](https://jordanhal.straw.page) 
+Here if you wanna draw [Strawpage](https://jordanhal.straw.page) 
 
 and hereś my old strawpage.[Strawpage2](https://ang3lcake.straw.page)
 
