@@ -16,11 +16,11 @@ Yesss I love Green Lanterns,and Flash is cool too!
 
 Some info about me;
 
-Hihihihi! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward around everypony I dont know, so it would take me a while to interact with them. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. ^_*
+Hello everypony! My name is Archer, and I also go by other names, like Mou, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin names and any nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhh, uhhh, my favorite color is orange...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great, my words often come off. I'm kinda awkward around everypony I dont know, so it would take me a while to interact with them. 🫠 Please be patient with me. I love Green Lanterns and alien robots. My friends are very cool. ^_*
 
 [ extra?; ]
 
-INTJ
+- INTJ
 
 - Spanish is my mother tongue, and I was born in Puerto Rico 
 
@@ -65,7 +65,7 @@ Before you INT;
 • 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
 
-• 5. I make dry responses and feel awkward around new people, sometimes with other friends I'm not close to. It will take a while to 
+• 5. I make dry responses and feel awkward around new ponies, sometimes with other friends I'm not close to. It will take a while to 
 
 
 
