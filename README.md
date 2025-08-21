@@ -47,6 +47,9 @@ Here’s the kinlist! ;
 
 
 
+hehe ^^
+
+
 ______________________________
 
 Before you INT; 
