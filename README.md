@@ -4,6 +4,8 @@
      
 [Strawpage](https://ang3lcake.straw.page)
 
+strawpage will be remake soon. 
+
  Anyway, here are some things if you'd like to know about me,. scroll down. 
 
 
