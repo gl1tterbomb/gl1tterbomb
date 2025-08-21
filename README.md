@@ -79,7 +79,7 @@ Thin Ice;
 
 
 
-uh uhh  the Riddle 2022/Joker/Batfam/Redhood fans?
+uh uhh  the Riddler 2022/Joker/Batfam/Redhood fans?
 [ Sorry I had a beef with them species. If ya'll one of my friends and you like Batfamily or any of those, I don't care, you do you. ^^ ]
 
 ___________________________________________________________________________
