@@ -30,16 +30,26 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 [ Things I like: ]
 
-My cool friends, they are all cool and amazing. 
+- My cool friends, they are all cool and amazing. 
 
-I enjoy giving fanart and some stuff to friends!
+- I enjoy giving fanart and some stuff to friends!
 
-Roleplay! I do role-playing and play in characters, but rarely, but I miss them.grrr
+- Roleplay! I do role-playing and play in characters, but rarely, but I miss them.grrr
 
-I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
+- I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
 
-OCS is cool, they are one of my favorite parts to create. I also make transformer oc and dc.
+- OCS is cool, they are one of my favorite parts to create. I also make transformer oc and dc.
 My fav character is Hal Jordan and Booster Gold (Im his number #116 fan trust)
+
+
+Hobbies;
+
+- I like to cook, bake and clean. :D
+
+-  Again, drawing.
+
+-  
+
 _______________________________________
 ____________________________________
 
