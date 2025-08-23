@@ -24,7 +24,7 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 - Spanish is my mother tongue, and I was born in Puerto Rico 
 
-- AHDD/Autism spectrum
+- ADHD/Autism spectrum
 
 - Green lantern is awesome
 
@@ -34,7 +34,7 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 - I enjoy giving fanart and some stuff to friends!
 
-- Roleplay! I do role-playing and play in characters, but rarely, but I miss them.grrr
+- Roleplay! I do role-playing and play in characters, but rarely,. I miss them.grrr
 
 - I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and others!
 
