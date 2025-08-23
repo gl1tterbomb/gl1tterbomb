@@ -88,7 +88,7 @@ Before you INT;
 
 Thin Ice;
 
-[Supernatural fandom for some reasons.😞 You can still INT. Just don’t bring up the 2 old dramas with one of our ex-friends @ccherrycake, especially the new one with his new group friends. I don't care what he's done, I'm not surprised at all. don’t drag me and any of my friends into this. It’s their fault they're still with him. ahh Twitter drama 🤣]
+[Supernatural for some reasons.😞 You can still INT. Just don’t bring up the 2 old dramas with one of our ex-friends @ccherrycake, especially the new one with his new group friends. I don't care what he's done, I'm not surprised at all. don’t drag me and any of my friends into this. It’s their fault they're still with him. ahh Twitter drama 🤣]
 
 
 
