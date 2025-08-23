@@ -36,7 +36,7 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 - Roleplay! I do role-playing and play in characters, but rarely, but I miss them.grrr
 
-- I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
+- I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and others!
 
 - OCS is cool, they are one of my favorite parts to create. I also make transformer oc and dc.
 My fav character is Hal Jordan and Booster Gold (Im his number #116 fan trust)
@@ -79,12 +79,15 @@ Before you INT;
 
 
 
-• 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc ect. If you get tired of it, just let me know, plssss.
+• 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc etc. If you get tired of it, just let me know, plssss.
 
 • 7. Sometimes I say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
 
+- 8 I don't FW with everypony, especially ex-friends who are mean to my friends, and I'm not ashamed to say their names in public. Yes, none of them are worth it.
+
 
 Thin Ice;
+
 [Supernatural fandom for some reasons.😞 You can still INT. Just don’t bring up the 2 old dramas with one of our ex-friends @ccherrycake, especially the new one with his new group friends. I don't care what he's done, I'm not surprised at all. don’t drag me and any of my friends into this. It’s their fault they're still with him. ahh Twitter drama 🤣]
 
 
