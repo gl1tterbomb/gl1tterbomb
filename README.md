@@ -81,7 +81,10 @@ Before you INT;
 
 • 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc etc. If you get tired of it, just let me know, plssss.
 
+
 • 7. Sometimes I say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
+
+
 
 - 8 I don't FW with everypony, especially ex-friends who are mean to my friends, and I'm not ashamed to say their names in public. Yes, none of them are worth it.
 
