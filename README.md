@@ -86,7 +86,7 @@ Before you INT;
 
 
 
-- 8 I don't FW with everypony, especially ex-friends who are mean to my friends, and I'm not ashamed to say their names in public. Yes, none of them are worth it.
+- 8 I don't FW with everypony, especially ex-friends who are mean to my friends. Yes, none of them are worth it.
 
 
 Thin Ice;
