@@ -10,7 +10,6 @@ If you're uhm interest to see my arts.
 
 and here's my old crusty strawpage.[Strawpage2](https://ang3lcake.straw.page)
 
-strawpage will be remake soon. 
 
  Anyway, here are some things if you'd like to know about me,. scroll down. 
 
