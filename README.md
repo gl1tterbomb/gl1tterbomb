@@ -4,6 +4,10 @@
      
 Here if you wanna draw [Strawpage](https://jordanhal.straw.page) 
 
+If you're uhm interest to see my arts.
+[arts](https://ang3lcakeart.straw.page/)
+
+
 and here's my old crusty strawpage.[Strawpage2](https://ang3lcake.straw.page)
 
 strawpage will be remake soon. 
