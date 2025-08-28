@@ -82,7 +82,7 @@ Before you INT;
 
 
 
-• 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, and Supernatural, etc etc. If you get tired of it, just let me know, plssss.
+• 6. If you mention Hal Jordan or Booster Gold, I will giggle and kick my feet. I'll yap bout them and include others like from DC, Transformers, Marvel, etc etc. If you get tired of it, just let me know, plssss.
 
 
 • 7. Sometimes I say words out of blue, if that makes you extremely uncomfortable, please let me know.  😞
