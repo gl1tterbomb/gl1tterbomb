@@ -27,7 +27,7 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 - Spanish is my mother tongue, and I was born in Puerto Rico 
 
-- ADHD/Autism spectrum
+- ADHD/Autism spectrum and dyslexia
 
 - Green lantern is awesome
 
@@ -94,13 +94,13 @@ Before you INT;
 
 Thin Ice;
 
-[Supernatural some reasons.😞 You can still INT.]
+- [Supernatural some reasons.😞 You can still INT.]
 
 
+- Most of mou's ex friends
 
 
-
-uh uhh  the Riddler 2022/Joker/Batfam/Redhood fans?
+- uh uhh  the Riddler 2022/Joker/Batfam/Redhood fans?
 [ Sorry I had a beef with them species. If ya'll one of my friends and you like Batfamily or any of those, I don't care, you do you. ^^ ]
 
 ___________________________________________________________________________
