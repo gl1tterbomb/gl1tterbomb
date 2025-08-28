@@ -97,6 +97,10 @@ Thin Ice;
 - [Supernatural some reasons.😞 You can still INT.]
 
 
+- Drama. Don't drag me or my friends into this. I don't care who started it, I'm not going to take your damn side.
+
+- I dont give a damn about anti and proshipper wars. it's getting ridiculous. 
+
 - Most of mou's ex friends
 
 
