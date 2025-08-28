@@ -73,7 +73,7 @@ Before you INT;
  
  • 2.   I need more Booster Gold fans or any DC/Marvel fans plsss ;-;
   
-• ★ 3. Let u know I'm not into Supernatural, eddsoworld, COD, Squid game, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them  👍  👍 
+• ★ 3. Let u know I'm not into Supernatural, eddsoworld, COD, Squid game, FNF, Dandy world, and some other fandom;-;. My friends will force me to match with them.,but you can still INT with us ^_^  👍  👍 
 
 • 4. I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, ect.
 
