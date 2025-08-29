@@ -37,3 +37,7 @@ Hello everypony! My name is Archer, and I also go by other names, like Mou, Rodd
 
 - I enjoy giving fanart and some stuff to friends!
 
+dni; 
+
+ex friends and their friends
+
