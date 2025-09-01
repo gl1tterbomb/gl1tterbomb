@@ -1,6 +1,6 @@
 ## ## bananan 
 
-If u want to know about me [Patreon](https://www.patreon.com/c/ArrowOfLiez)
+If u want to know more about me [Patreon](https://www.patreon.com/c/ArrowOfLiez)
 
 [Atabook](https://haljordan.atabook.org/)
      
