@@ -6,3 +6,6 @@ Here if you wanna draw [Strawpage](https://jordanhal.straw.page)
 
 If you're uhm interest to see my arts.
 [arts](https://ang3lcakeart.straw.page/)
+
+[Twitter](https://x.com/HaroldJordanfan)
+[Tumblr](https://www.tumblr.com/blog/angelc3ke)
