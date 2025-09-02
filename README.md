@@ -1,5 +1,7 @@
 ## ## bananan 
 
+ rarepair/crossover ships on top
+
 If u want to know more about me [Patreon](https://www.patreon.com/c/ArrowOfLiez)
 
 [Atabook](https://haljordan.atabook.org/)
