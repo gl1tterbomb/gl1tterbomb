@@ -14,8 +14,4 @@ If you're uhm interest to see my arts.
 [Twitter](https://x.com/HaroldJordanfan)
 
 
-[Tumblr](https://www.tumblr.com/blog/angelc3ke)
-
-
-
 [Instagram](https://www.instagram.com/haroldjordanfan/)
