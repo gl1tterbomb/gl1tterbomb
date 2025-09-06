@@ -17,7 +17,7 @@ Some info about me;
 
 Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin and any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; my words often come off. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
 
-[image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
+
 
 [ extra hmm?; ]
 
@@ -30,6 +30,8 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 - INTJ
 
 I stay in safe most of the time. You will see me sitting in Transformers or Deltarune. Sometimes I go to the comic area when I’m bored or hang out with my friends. :D
+
+ ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 ____________________________
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
@@ -108,4 +110,4 @@ Fandom I am in:
 
 ★ Others
 
- ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
+![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
