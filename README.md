@@ -38,8 +38,6 @@ ____________________________
 
 art by @kalamariboy in tumblr 
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
-
 
 INT TIME !;
 
@@ -61,6 +59,10 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 
 ★ dumb thin ice lists👍
 [Patreon](https://www.patreon.com/c/ArrowOfLiez)
+
+
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
+
 
 [ Things I like: ]
 
