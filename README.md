@@ -11,7 +11,7 @@ If you're uhm interest to see my arts.
 [Instagram](https://www.instagram.com/haroldjordanfan/)
 
 
-Anyway, here are some things if you'd like to know about me. scroll down. Read thin ice before you get surprised why the reasons I ignored you.
+Anyway, here are some things if you'd like to know about me. scroll down. Read thin ice before you get confused why the reasons I ignored you.
 
 Some info about me;
 
