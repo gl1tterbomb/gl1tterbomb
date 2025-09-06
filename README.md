@@ -34,13 +34,8 @@ I stay in safe most of the time. You will see me sitting in Transformers or Delt
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 ____________________________
 
-![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
-
-
-dumb thin ice lists👍
-[Patreon](https://www.patreon.com/c/ArrowOfLiez)
-
-
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
+@kalamariboy in tumblr 
 
 INT TIME !;
 
@@ -60,6 +55,9 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 
 ★ - pleaase I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
+★ dumb thin ice lists👍
+[Patreon](https://www.patreon.com/c/ArrowOfLiez)
+
 [ Things I like: ]
 
 ★ I like Space. Space is awesome and very beautiful👍
@@ -70,6 +68,7 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 
 ★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
 
+![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
 ____________________________________
 
 Uh, more Extra info?; ♡/☆ ;
@@ -109,5 +108,3 @@ Fandom I am in:
 ★ house M.D(I'm new]
 
 ★ Others
-
-![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
