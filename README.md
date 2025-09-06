@@ -1,17 +1,103 @@
 ## ## bananan 
+★ I'm going to remake this soon. It’s dumb ;-;.
 
- rarepair/crossover ships on top
+My ata: [Atabook](https://haljordan.atabook.org/)
 
-If u want to know more about me [Patreon](https://www.patreon.com/c/ArrowOfLiez)
-
-[Atabook](https://haljordan.atabook.org/)
-     
-Here if you wanna draw [Strawpage](https://jordanhal.straw.page) 
+Here, if you wanna draw [Strawpage](https://jordanhal.straw.page) 
 
 If you're uhm interest to see my arts.
-[Strawpage2](https://ang3lcakeart.straw.page/)
-
+[Strawpage2](https://ang3lcakeart.straw.page/)   
 [Tumblr](https://www.tumblr.com/blog/angelc3ke)
-
-
 [Instagram](https://www.instagram.com/haroldjordanfan/)
+
+
+Anyway, here are some things if you'd like to know about me. scroll down. Read thin ice before you get surprised why the reasons I ignored you.
+
+Some info about me;
+
+Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin and any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; my words often come off. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
+
+[ extra hmm?; ]
+
+-Pronouns? I use any! He/him and They/them is okay^^
+
+- Spanish is my mother tongue, and I was born in Puerto Rico
+
+- I have ADHD/Autism spectrum and dyslexia
+
+- INTJ
+
+I stay in safe most of the time. You will see me sitting in Transformers or Deltarune. Sometimes I go to the comic area when I’m bored or hang out with my friends. :D
+____________________________
+dumb thin ice lists👍
+[Patreon](https://www.patreon.com/c/ArrowOfLiez)
+
+
+
+INT TIME !;
+
+[Grrr my English grammar may sometimes be hellla confused for most people. I will try my best to explain.👍]
+
+★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
+
+★. - thinks Doubles? hmm.. I don’t really mind. I love to meet doubles ^
+
+★- I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. I FW OC/canon and selfshippers :D Here's my ships if u dont like then thats fine! [ships](https://ang3lcake.straw.page/hobbies)
+
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like green lantern and flash
+
+★ I’m fine with ships. Oc/canon or rarepair. Just don’t make it weird ig?
+
+If I haven’t responded to any of your messages, I’m sorry. I’m not trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just slow to respond., and it’ll takes me a while, who knows. Feel free to whisper, and I'll check and reply! So uh please whisper 👍!
+
+★ - pleaase I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
+
+[ Things I like: ]
+
+★ I like Space. Space is awesome and very beautiful👍
+
+★- My cool friends, they are all cool and amazing.
+
+★ - OCS! OCS are very cool, they are one of my favorite parts to create. I also make transformer oc and DC.
+
+★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
+
+____________________________________
+
+Uh, more Extra info?; ♡/☆ ;
+
+☆ If I unblock you on Ponytown, that means I don't remember the reasons why, or maybe I moved on.
+
+I have evil darkness secrets.. heh… don’t tell anyone…
+
+______________________________________
+
+Fandom I am in:
+
+★ Rescue bots/Transformers
+
+★ Marvel/DC
+
+★ Octonauts
+
+★ Undertale/Deltarune
+
+★ Star Trek
+
+★ FNAF
+
+★ Monster High
+
+★Good Omens
+
+★ RDR2
+
+★ Villainous
+
+★ Ninjago
+
+★ TMNT
+
+★ house M.D(I'm new]
+
+★ Others
