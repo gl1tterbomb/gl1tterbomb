@@ -59,7 +59,7 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 
 ★ - pleaase I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
-★ dumb thin ice lists👍
+★ dumb thin ice/DNI lists👍
 [Patreon](https://www.patreon.com/c/ArrowOfLiez)
 
 
