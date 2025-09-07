@@ -1,4 +1,4 @@
-## ## bananan 
+## ## banan
 ★ I'm going to remake this soon. It’s dumb ;-;.
 
 My ata: [Atabook](https://haljordan.atabook.org/)
