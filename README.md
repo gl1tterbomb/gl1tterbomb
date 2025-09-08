@@ -15,7 +15,7 @@ Anyway, here are some things if you'd like to know about me. scroll down.
 
 Some info about me;
 
-Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin and any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; my words often come off. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
+Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin and any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; my words often come off and get mixed up. Sorry if I confuse you. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
 
 
 
@@ -40,8 +40,6 @@ art by @kalamariboy in tumblr! They have amazing arts!
 
 
 INT TIME !;
-
-[Grrr my English grammar may sometimes be hellla confused for most people. I will try my best to explain.👍]
 
 ★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
 
