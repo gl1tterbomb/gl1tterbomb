@@ -29,7 +29,7 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - INTJ
 
-I stay in safe most of the time. You will see me sitting in Comic area or Transformers whe I’m bored, or hang out with my friends, ooorr make some new friends.^^. I also go to the Deltarune/Undertale area with my friend. I stayed there to make ponies or RP. Sometimes I walk around the map or stay in island to make something?
+I stay in safe most of the time. You will see me sitting in Comic area or Transformers hangi out with my friends, or whebn I'm bored, ooorr make some new friends.^^. I also go to the Deltarune/Undertale area with my friend. I stayed there to make ponies or RP. Sometimes I walk around the map or stay in island to make something?
 
 Smelly BYI(Before you INT) here, going to remake soon. [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
