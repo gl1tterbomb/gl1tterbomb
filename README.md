@@ -31,6 +31,9 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 I stay in safe most of the time. You will see me sitting in Transformers. I only go to the Deltarune/Undertale area or island when I'm not in a good mood or with my friend. I stayed there to make ponies or RP. Sometimes I walk around the map or go to the comic area when I’m bored, or hang out with my friends, ooorr make some new friends.^^
 
+Smelly BYI(Before you INT) here, going to remake soon. [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
+
+ 
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 ____________________________
 
