@@ -77,7 +77,7 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
 ____________________________________
 
-Uh, more Extra info?; ♡/☆ ;
+More Extra info?; ♡/☆ ;
 
 ☆ If I unblock you on Ponytown, that means I don't remember the reasons why, or maybe I moved on.
 
