@@ -13,13 +13,13 @@ If you're uhm interest to see my arts.
 
 Anyway, here are some things if you'd like to know about me. scroll down.
 
-**SOME INFO ABOUT;**
+****SOME INFO ABOUT****;
 
 Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Roddy, Harold/Hal, and more... I'm fine with people calling me by kin and any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; I make some mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
 
 
 
-[ EXTRA HMM?; ]
+****[ EXTRA HMM?; ]****
 
 -Pronouns? I use any! He/him and They/them is okay^^
 
@@ -44,7 +44,7 @@ art by @kalamariboy in tumblr! They have amazing arts!
 
 _____________________________________
 
-**INT TIME** !;
+****INT TIME**** !;
 __
 ★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
 
@@ -66,7 +66,7 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
 
 
-**[ THINGS I LIKE: ]**
+****[ THINGS I LIKE: ]****
 
 ★ I like Space. Space is awesome and very beautiful👍
 
@@ -79,7 +79,7 @@ If I haven’t responded to any of your messages, I’m sorry. I’m not trying 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
 ____________________________________
 
-**MORE EXTRA INFO?; ♡/☆ ;**
+****MORE EXTRA INFO?; ♡/☆ ;****
 
 ☆ If I unblock you on Ponytown, that means I don't remember the reasons why, or maybe I moved on.
 
@@ -87,7 +87,7 @@ I have evil darkness secrets.. heh… don’t tell anyone…
 
 ______________________________________
 
-Fandom I am in:
+****FANDOM I AM IN;****
 
 ★ Rescue bots/Transformers
 
