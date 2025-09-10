@@ -49,6 +49,9 @@ _____________________________________
 
 ★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
 
+★ I gotta be honest.,I've never take inspired by anyone except my closest friends. If you see random pony has similar style or some crap as me. does not mean they took inspired or copied, nor did I. We don't own anything.
+
+
 ★. - thinks Doubles? hmm.. I don’t really mind. I love to meet doubles ^
 
 ★- I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. I FW OC/canon and selfshippers :D 
