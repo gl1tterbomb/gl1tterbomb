@@ -45,7 +45,8 @@ art by @kalamariboy in tumblr! They have amazing arts!
 _____________________________________
 
 ****INT TIME**** !;
-__
+
+
 ★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
 
 ★. - thinks Doubles? hmm.. I don’t really mind. I love to meet doubles ^
