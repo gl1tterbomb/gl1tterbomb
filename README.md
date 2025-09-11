@@ -10,6 +10,7 @@ If you're uhm interest to see my arts.
 [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 [Instagram](https://www.instagram.com/haroldjordanfan/)
 
+Family tree! thisz is a remake, but we all penguins>:D ; [Family tree hehehe](https://jordanhal.straw.page/aremakeoffamilytree)
 
 Anyway, here are some things if you'd like to know about me. scroll down.
 
