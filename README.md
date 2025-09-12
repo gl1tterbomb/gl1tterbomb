@@ -31,7 +31,7 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - Spanish is my mother tongue, and I was born in Puerto Rico
 
-- I have ADHD/Autism spectrum and dyslexia. Also anxiety 'n some crap.
+- I have ADHD/Autism spectrum and dyslexia. Also anxiety 'n some crap. #Woke #Kidthesedayssmh😒
 
 - INTJ
 
