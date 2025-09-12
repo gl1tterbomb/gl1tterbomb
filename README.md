@@ -37,7 +37,7 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - Green lantern
 
-I stay in safe most of the time. You will see me sitting in Comic, Deltarune/Undertale, or Transformers area to hangi out with my friends, ooorr make some new friends.^^ Sometimes I walk around the map or stay in island when I'm bored or rp or something?
+I stay in safe most of the time. You will see me sitting in Comic, Deltarune/Undertale, or Transformers area to hangi out with my friends, ooorr make some new friends.^^ Sometimes I walk around the map or stay in island when I'm bored or rp or something? no clue? okay
 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
