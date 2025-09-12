@@ -31,7 +31,7 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - Spanish is my mother tongue, and I was born in Puerto Rico
 
-- I have ADHD/Autism spectrum and dyslexia. N some crap.
+- I have ADHD/Autism spectrum and dyslexia. Anxiety n some crap.
 
 - INTJ
 
@@ -53,7 +53,7 @@ _____________________________________
 ****INT TIME**** !;
 
 
-★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. somtime I also make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best👍👍
+★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. Sometimes I make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best.👍👍 I promise I'm not bored and not a mean person😔
 
 
 ★. - thinks Doubles? hmm.. I don’t really mind. I love to meet doubles ^
