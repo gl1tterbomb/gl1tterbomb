@@ -1,7 +1,7 @@
 ## ## banan
 ★ I'm going to remake this soon. It’s dumb ;-;.
 
-****Please read dni/byi list****
+**** Read dni/byi list. its oon patreon👍 ****
 
 
 My ata: [Atabook](https://haljordan.atabook.org/)
