@@ -35,6 +35,8 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - INTJ
 
+- Green lantern
+
 I stay in safe most of the time. You will see me sitting in Comic area or Transformers hangi out with my friends, or whebn I'm bored, ooorr make some new friends.^^ I also go to on Deltarune/Undertale area with my friend. I stayed there to mess around with them or RP. Sometimes I walk around the map or stay in island to make ponies or something?
 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
@@ -62,7 +64,7 @@ _____________________________________
 
 Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3](https://ang3lcake.straw.page/hobbies)
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like green lantern and flash
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like green lantern and flash. I don't really call myself number one fan.
 
 ★ I’m fine with ships. Oc/canon or rarepair. Just don’t make it weird ig?
 
