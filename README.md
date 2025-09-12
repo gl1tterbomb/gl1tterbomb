@@ -1,6 +1,9 @@
 ## ## banan
 ★ I'm going to remake this soon. It’s dumb ;-;.
 
+****Please read dni/byi list****
+
+
 My ata: [Atabook](https://haljordan.atabook.org/)
 
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
