@@ -5,6 +5,7 @@ My ata: [Atabook](https://haljordan.atabook.org/)
 
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
 
+my old crusty strawpage [Strawpage1](https://straw.page/draw)
 If you're uhm interest to see my arts.
 [Strawpage2](https://ang3lcakeart.straw.page/)   
 [Tumblr](https://www.tumblr.com/blog/angelc3ke)
