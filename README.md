@@ -21,7 +21,7 @@ Anyway, here are some things if you'd like to know about me. scroll down.
 
 ****ABOUT ME****;
 
-Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Harold/Hal, and more... I'm fine with people calling me by any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; I make some grammar mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
+Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, Archer, Harold/Hal, and more... I'm fine with people calling me by any silly nicknames ^^ as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! uhhhh, my favorite color is orange and green...I am an artist and I love to draw a lot. I sometimes post my artworks on social media. I don't really talk that much, and my English is not that great; I make some grammatical mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everypony I don't know, so it would take me a while to interact with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned they’re stinky ^_*
 
 
 
@@ -35,11 +35,11 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - INTJ
 
-- Green lantern
+- Kids these days' favorite heroes are mostly Batman or Superman. Well, my is... me? I'm trying to be silly, ignore me;-;
 
 - ★ I’m fine with doing ships. Oc/canon or rarepair. As long its not hal/sinestro or hal/kyle. I'm fine with that.
 
-I stay in safe most of the time. You will see me sitting in Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closet buddies or chill. Feel free to C+H! ^^ I somtimes walk around the map or stay in island when I'm bored or do some random roleplay or something? no clue? okay
+I stay in safe most of the time. You will see me sitting in the Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closet buddies or chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
@@ -70,7 +70,7 @@ Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3
 
 If I haven’t responded to any of your messages, I’m sorry. I’m not trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just slow to respond., and it’ll takes me a while, who knows. Feel free to whisper, and I'll check and reply! So uh please whisper 👍!
 
-★ - pleaase I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
+★ - pleease pleease I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
