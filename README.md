@@ -127,4 +127,4 @@ ______________________________________
 _____________________________
 
 
-- Kids these days' favorite heroes are mostly Batman or Superman. Mine? well, is... uhh, me? I'm trying to be silly, ignore me;-;
+- Kids these days' favorite heroes are mostly Batman, Wonderwoman or Superman.Mine? well, is... uhh, me? I'm trying to be silly, ignore me;-;
