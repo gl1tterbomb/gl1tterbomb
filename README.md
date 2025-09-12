@@ -35,7 +35,7 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - INTJ
 
-- ★ I’m fine with doing ships. Oc/canon or rarepair. As long its not hal/sinestro or hal/kyle. I'm fine with that.
+- ★ I’m fine with ships. Oc/canon or rarepair. As long its not hal/sinestro or hal/kyle. I'm fine with that.
 
 I stay in safe most of the time. You will see me sitting in the Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closet buddies or chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
 
