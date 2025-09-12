@@ -37,6 +37,8 @@ Hello everypony! My name is Mou and I also go by other names, like Dino, Naomi, 
 
 - Green lantern
 
+- ★ I’m fine with doing ships. Oc/canon or rarepair. As long its not hal/sinestro or hal/kyle. I'm fine with that.
+
 I stay in safe most of the time. You will see me sitting in Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closet buddies or chill. Feel free to C+H! ^^ I somtimes walk around the map or stay in island when I'm bored or do some random roleplay or something? no clue? okay
 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
@@ -65,8 +67,6 @@ _____________________________________
 Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3](https://ang3lcake.straw.page/hobbies)
 
 ★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like green lantern and flash. I don't really call myself number one fan.
-
-★ I’m fine with ships. Oc/canon or rarepair. Just don’t make it weird ig?
 
 If I haven’t responded to any of your messages, I’m sorry. I’m not trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just slow to respond., and it’ll takes me a while, who knows. Feel free to whisper, and I'll check and reply! So uh please whisper 👍!
 
