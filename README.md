@@ -55,7 +55,7 @@ _____________________________________
 ****INT TIME**** !;
 
 
-★- ships; I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. I FW OC/canon and selfshippers too.
+★- ships; I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. No matter it is an AU, crossovers, headcanons, etc. I also love OC/canon and selfshippers.
 
 Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3](https://ang3lcake.straw.page/hobbies)
 
