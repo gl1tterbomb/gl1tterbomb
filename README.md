@@ -52,8 +52,15 @@ art by @kalamariboy in tumblr! They have amazing arts!
 
 _____________________________________
 
-****INT TIME**** !;
+****[INT TIME/THINGS I LIKE: ]****
 
+★ I like Space. Space is awesome and very beautiful👍
+
+★- My cool friends, they are all cool and amazing.
+
+★ - OCS! OCS are very cool, they are one of my favorite parts to create. I also make transformer oc and DC.
+
+★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
 
 ★- ships; I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. No matter it is an AU, crossovers, headcanons, etc. I also love OC/canon and selfshippers.
 
@@ -67,17 +74,7 @@ Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
 
 
-****[ THINGS I LIKE: ]****
 
-★ I like Space. Space is awesome and very beautiful👍
-
-★- My cool friends, they are all cool and amazing.
-
-★ - OCS! OCS are very cool, they are one of my favorite parts to create. I also make transformer oc and DC.
-
-★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
-
-![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) !
 ____________________________________
 
 ****MORE EXTRA INFO?; ♡/☆ ;****
@@ -91,6 +88,9 @@ ______________________________________
 ****FANDOM I AM IN;****
 
 ★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new] + Others!
+
+![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) 
+
 _____________________________
 
 
