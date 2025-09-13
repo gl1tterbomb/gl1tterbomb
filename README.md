@@ -31,7 +31,7 @@ Hello everypony! My name is Mou and I also go by other names, like Mike/Michael,
 
 - Spanish is my mother tongue, and I was born in Puerto Rico
 
-- I have ADHD/Autism spectrum. Also, dyslexia. I have trouble with reading and other things, especially in my main language. and some crap. #Woke #Genzthesedayssmh😒
+- I have ADHD/Autism spectrum. Also, dyslexia. I have trouble with reading and other things, especially in my main language. #Woke #Genzthesedayssmh😒
 
 - INTJ
 
