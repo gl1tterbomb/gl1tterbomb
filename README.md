@@ -79,7 +79,7 @@ ____________________________________
 
 ****MORE EXTRA INFO?; ♡/☆ ;****
 
-☆ If I unblock you on Ponytown, that means I don't remember the reasons why, or maybe I moved on.
+☆ If I unblock you, that means I don't remember the reasons why, or maybe I moved on.
 
 I have evil darkness secrets.. heh… don’t tell anyone…
 
