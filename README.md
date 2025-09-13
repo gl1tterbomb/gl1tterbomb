@@ -1,7 +1,7 @@
 ## ## banan
 ★ I'm going to remake this soon. It’s dumb ;-;.
 
-**** Read dni/byi list. its oon patreon👍 ****
+**** Read dni/byi list. it's oon patreon👍 ****
 
 
 My ata: [Atabook](https://haljordan.atabook.org/)
@@ -55,18 +55,11 @@ _____________________________________
 ****INT TIME**** !;
 
 
-★. I rarely int and C+H with ponies first. I’m not good at starting or holding conversations. Sometimes I make dry responses and feel awkward around new ponies, some with other friends I'm not close to. So I will try my best.👍👍 I promise I'm not bored and not a mean person😔
-
-
-★. - thinks Doubles? hmm.. I don’t really mind. I love to meet doubles ^
-
-★- I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. I FW OC/canon and selfshippers too.
+★- ships; I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. I FW OC/canon and selfshippers too.
 
 Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3](https://ang3lcake.straw.page/hobbies)
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like green lantern and flash. I don't really call myself number one fan.
-
-If I haven’t responded to any of your messages, I’m sorry. I’m not trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just slow to respond., and it’ll takes me a while, who knows. Feel free to whisper, and I'll check and reply! So uh please whisper 👍!
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like Green Lantern and Flash. I don't really call myself number one fan.
 
 ★ - pleease pleease I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
@@ -97,33 +90,7 @@ ______________________________________
 
 ****FANDOM I AM IN;****
 
-★ Rescue bots/Transformers
-
-★ Marvel/DC
-
-★ Octonauts
-
-★ Undertale/Deltarune
-
-★ Star Trek
-
-★ FNAF
-
-★ Monster High
-
-★Good Omens
-
-★ RDR2
-
-★ Villainous
-
-★ Ninjago
-
-★ TMNT
-
-★ house M.D(I'm new]
-
-★ Others
+★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new] + Others!
 _____________________________
 
 
