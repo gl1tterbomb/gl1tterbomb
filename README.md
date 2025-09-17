@@ -54,6 +54,9 @@ ____________________________
 
 ★ - OCS! OCS are very cool, they are one of my favorite parts to create. I also make transformer oc and DC.
 
+★ Shows I like - Villainous, Care Bears, Batman 2004/The Brave and the Bold, TT/TTG, MLP,
+
+
 ★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
 
 ★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others.
