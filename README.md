@@ -31,11 +31,11 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - Spanish is my mother tongue, and I was born in Puerto Rico
 
-- I have ADHD/Autism spectrum. Also, dyslexia. I have trouble with reading and other things, especially in my main language. #Woke #Genzthesedayssmh😒
+- I have ADHD/Autism spectrum. And dyslexia. I have trouble with reading and other things, especially in my main language. I also have memory problems. Like not remembering some stuff, and please don't get offended if I don't remember who you are. #Woke #Genzthesedayssmh😒
 
 - INTJ
 
-- ★ I’m fine with ships. Oc/canon or rarepair. As long its not pietro/magneto, wally/barry or hal/kyle👍👍. I'm fine with that.
+- ★ I’m fine with ships. Oc/canon or rarepair. As long it's not pietro/magneto, wally/barry or hal/kyle👍👍. I'm fine with that.
 
 I stay in safe most of the time. You will see me sitting in the Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
 
