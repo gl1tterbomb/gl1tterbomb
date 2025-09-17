@@ -35,7 +35,7 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - INTJ
 
-- ★ I’m fine with ships. Oc/canon or rarepair. As long it's not pietro/magneto, wally/barry or hal/kyle👍👍. I'm fine with that.
+- ★ I’m fine with ships. Oc/canon or rarepair. 👍👍
 
 I stay in safe most of the time. You will found me sitting in the Comic, Deltarune/Undertale, Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
 
