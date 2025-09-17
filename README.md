@@ -54,7 +54,7 @@ ____________________________
 
 ★ - OCS! OCS are very cool, they are one of my favorite parts to create. I also make transformer oc and DC.
 
-★ Shows I like - Villainous, Care Bears, Batman 2004/The Brave and the Bold, TT/TTG, MLP,
+★ Shows I like - Villainous, Care Bears, Batman 2004/The Brave and the Bold, Njnjago, TT/TTG, MLP,
 
 
 ★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
