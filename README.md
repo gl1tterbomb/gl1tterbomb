@@ -45,11 +45,6 @@ I stay in safe most of the time. You will see me sitting in the Comic, Deltarune
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 ____________________________
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
-
-
-
-_____________________________________
 
 ****[INT TIME/THINGS I LIKE: ]****
 
@@ -96,7 +91,7 @@ I have evil darkness secrets.. heh… don’t tell anyone…
 
 
 
-![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) 
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
 
 _____________________________
 
