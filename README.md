@@ -37,7 +37,7 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - ★ I’m fine with ships. Oc/canon or rarepair. As long it's not pietro/magneto, wally/barry or hal/kyle👍👍. I'm fine with that.
 
-I stay in safe most of the time. You will see me sitting in the Comic, Deltarune/Undertale, or Transformers area. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
+I stay in safe most of the time. You will found me sitting in the Comic, Deltarune/Undertale, Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
