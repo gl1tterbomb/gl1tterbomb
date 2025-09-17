@@ -71,7 +71,7 @@ ____________________________
 
 Comf; Boostle, Halbarry, Oliver Queen/Hal Jordan, Ghostbat
 
-Rest, Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Nightwing/Jericho, much more..
+Rest, Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Nightwing/Jericho, much more.. I love being multi shipper;-;
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
