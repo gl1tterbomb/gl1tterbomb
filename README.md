@@ -45,9 +45,8 @@ I stay in safe most of the time. You will see me sitting in the Comic, Deltarune
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 ____________________________
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
 
-art by @kalamariboy in tumblr! They have amazing arts!
 
 
 _____________________________________
@@ -62,16 +61,28 @@ _____________________________________
 
 ★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
 
-★- ships; I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. No matter it is an AU, crossovers, headcanons, etc. I also love OC/canon and selfshippers.
-
-Here are my favorite ships. If u don't like them, then that's fine! [Strawpage 3](https://ang3lcake.straw.page/hobbies)
+★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others.
 
 ★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like Green Lantern and Flash. I don't really call myself number one fan.
 
 ★ - pleease pleease I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
+****FANDOM I AM IN;****
+
+★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new] + Others!
+
+★ ***COMF/SHIPS I LIKE***; 
+
+Comf; Boostle, Halbarry, Oliver Queen/Hal Jordan, Ghostbat
+
+Rest, Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Nightwing/Jericho, much more..
+
+
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
+
+art by @kalamariboy in tumblr! They have amazing arts!
+
 
 
 
@@ -83,11 +94,7 @@ ____________________________________
 
 I have evil darkness secrets.. heh… don’t tell anyone…
 
-______________________________________
 
-****FANDOM I AM IN;****
-
-★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new] + Others!
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) 
 
