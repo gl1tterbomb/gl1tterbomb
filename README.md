@@ -31,7 +31,7 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - Spanish is my mother tongue, and I was born in Puerto Rico
 
-- I have ADHD/Autism spectrum. And dyslexia. I have trouble with reading and other things, especially in my main language.#Woke #Genzthesedayssmh😒  I somtime struggle with memorizing things? Like not remembering stuff,if you get upset with me forgetting who you are, I'm sorry. 
+- I have ADHD/Autism spectrum. And dyslexia. I have trouble with reading and other things, especially in my main language.#Woke #Genzthesedayssmh😒
 
 - INTJ
 
