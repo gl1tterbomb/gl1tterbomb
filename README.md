@@ -88,7 +88,7 @@ ____________________________________
 
 ****MORE EXTRA INFO?; ♡/☆ ;****
 
-☆ If I unhide/unblock you, that means I don't remember the reasons why, or maybe I moved on.To me, I mostly hide people for 24 hours or more.
+☆ If I unhide/unblock you, that means I don't remember the reasons why, or maybe I moved on. I mostly hide people for 24 hours or more.
 
 I have evil darkness secrets.. heh… don’t tell anyone…
 
