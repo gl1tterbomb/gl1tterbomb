@@ -33,8 +33,8 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - INTJ
 
-- I stay in safe most of the time. You will found me sitting in the Comic, Deltarune/Undertale, Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay
-
+- I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay. If you saw me chilling alone or with friends in the Marvel/DC area at safe, please do not interact unless its 18 server?
+- 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
  
