@@ -44,7 +44,7 @@ ____________________________
 
 ****[INT TIME/THINGS I LIKE: ]****
 
-★ - More cringe people plsss
+★ - More cringe friends plsss
 
 ★ I like Space. Space is awesome and very beautiful👍
 
