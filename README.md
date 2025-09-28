@@ -33,7 +33,7 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - INTJ
 
-- I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H and INT/W2I! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay. If you saw me chilling alone or with friends in the Marvel/DC area at safe, please do not interact
+- I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H and INT/W2I! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay.
 - 
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
@@ -57,7 +57,7 @@ ____________________________
 
 ★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
 
-★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others.
+★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others. I also want to meet more selfshippers,you guys are very cool!
 
 ★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like Green Lantern and Flash.
 
@@ -88,7 +88,6 @@ ____________________________________
 
 ☆ If I unhide/unblock you, that means I don't remember the reasons why, or maybe I moved on. I mostly hide people for 24 hours or more.
 
-I have evil darkness secrets.. heh… don’t tell anyone…
 
 
 
