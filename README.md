@@ -59,7 +59,7 @@ ____________________________
 
 ★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others.
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like Green Lantern and Flash. I don't really call myself number one fan.
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. I like Green Lantern and Flash.
 
 ★ - pleease pleease I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
