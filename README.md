@@ -70,7 +70,7 @@ ____________________________
 
 ★ ***COMF/SHIPS I LIKE***; 
 
-Ok; Boostle, Halbarry, Oliver Queen/Hal Jordan, Batflash, Wonder woman/Cheetah
+Ok; Boostle, Halbarry, Oliver Queen/Hal Jordan, Wonder woman/Cheetah
 
 Rest; Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Batflash,Ghostbat, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Batflash and much more.. multi shipper is cool;-;👍
 
