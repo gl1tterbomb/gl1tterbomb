@@ -70,9 +70,9 @@ ____________________________
 
 ★ ***COMF/SHIPS I LIKE***; 
 
-Ok; Boostle, Halbarry, Oliver Queen/Hal Jordan, Wonder woman/Cheetah
+Ok; Boostle, Halbarry, Oliver Queen/Hal Jordan, 
 
-Rest; Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Batflash,Ghostbat, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Batflash and much more.. multi shipper is cool;-;👍
+Rest; Wonder woman/Cheetah, Batlatern, Barry allen/Leonard snart, Green Arrow/Black Canary, Batflash,Ghostbat, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky, Batflash and much more.. multi shipper is cool;-;👍
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
