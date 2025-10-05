@@ -35,6 +35,8 @@ Hello everypony! My name is Mou and I also go by other names, like Archer, Naomi
 
 - I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or Transformers area or middle of nowhere. I stayed there to hangout with one of my closest buddies and chill. Feel free to C+H and INT/W2I! ^^ I sometimes walk around the map or stay on an island when I'm bored or do some random roleplay or something? No clue? okay.
 - 
+here is my kintypes; most of them are still the same. [Kintypes+others](https://kintypesz.straw.page)
+
 *****Uhhh smelly BYI(Before you INT)/DNI here, going to remake soon.***** [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
 
  
