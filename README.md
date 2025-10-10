@@ -57,11 +57,11 @@ ____________________________
 ★ Shows I like - Villainous, Care Bears, Batman 2004/The Brave and the Bold, Njnjago, TT/TTG, MLP,
 
 
-★ favorite characters? Hmmm, kinda hard question. I am very basic.:3 My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner… etc..
+★ favorite characters? Hmmm, kinda hard question. I am very basic. My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). I have more… Wonderwoman, Bart allen, Wally West, Ted Kord, Ice, Max lord, Guy Gardner, much more.
 
 ★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others. I also want to meet more selfshippers,you guys are very cool!
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superheroes media I liked that's not the boys. Sorry I not a fan of them😓. I mostly into Green lantern and the Flash. JLI too
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superheroes media I liked that's not the boys or Batfam. Sorry I not a fan of them😓. I mostly into Green lantern and the Flash. JLI too
 
 ★ - pleease pleease I need more Booster Gold fans or any cool DC/Marvel friends plsss ;-;
 
