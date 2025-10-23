@@ -1,16 +1,11 @@
-
-About me; [Patreon stuff](https://www.patreon.com/c/arrowofliez/about) 
-
 My ata: [Atabook](https://haljordan.atabook.org/)
 
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
 
-my old crusty strawpage [Strawpage1](https://ang3lcake.straw.page)
 
 If you're uhm interest to see my arts.
 [Strawpage2](https://ang3lcakeart.straw.page/)   
 [Tumblr](https://www.tumblr.com/blog/angelc3ke)
-[Instagram](https://www.instagram.com/haroldjordanfan/)
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
