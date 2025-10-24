@@ -1,5 +1,6 @@
 My ata: [Atabook](https://haljordan.atabook.org/)
 
+kin list + others [kinlist](https://kintypesz.straw.page/)
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
 
 [Read me/patreon](https://www.patreon.com/c/arrowofliez/about)
