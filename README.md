@@ -1,6 +1,7 @@
 My ata: [Atabook](https://haljordan.atabook.org/)
 
-Corny kin list + others [kinlist](https://straw.page/draw?bio=kintypesz)
+Corny kin list + others click here [kinlist](https://straw.page/draw?bio=kintypesz)
+
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
 
 If you want to know more about me [Read me/patreon](https://www.patreon.com/c/arrowofliez/about)
