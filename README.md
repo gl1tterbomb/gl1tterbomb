@@ -8,6 +8,7 @@ If you want to know more about me [Read me/patreon](https://www.patreon.com/c/ar
 
 If you're uhm interest to see my arts.
 [Strawpage2](https://ang3lcakeart.straw.page/)   
+
 [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
 
