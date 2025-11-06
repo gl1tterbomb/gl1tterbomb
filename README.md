@@ -1,6 +1,6 @@
 My ata: [Atabook](https://haljordan.atabook.org/)
 
-Corny kin list + others click here [kinlist](https://straw.page/draw?bio=kintypesz)
+Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
 
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
 
@@ -38,7 +38,7 @@ INTJ
 I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay
 
 Aster sucks
-Corny kin list + others [kinlist](https://straw.page/draw?bio=kintypesz)
+Corny kin list + others [kinlist](https://kintypesz.straw.page)
 ____________________________
 
 [INT TIME/THINGS I LIKE: ]
