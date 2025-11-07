@@ -27,17 +27,15 @@ Hello! My name is Aster, and I also go by other names, like Mou, Archer, Naomi, 
 
 I have ADHD/Autism spectrum /. And dyslexia. I have trouble with reading and other things, especially in my main language. I’m also struggling with social anxiety and socialization cues(I don't know if I'm spelling right), so I'll do the best I can. If I have upset you, made u uncomfortable, or anything like that, people do this often without telling me I did, and use it against me. Please please let me know I’m trying and I wanted to know what I did is wrong.😕 I may become clingy with the people I love, so please let me know if you ever feel uncomfortable with it.👍.
 
-I go by any pronouns. I mostly use he/him and they/them, it's alright if u wanna use the others. I'm agender/genderfluid and Omni/Demisexual.
-
 Spanish is my mother tongue, and I was born in Puerto Rico
 
-Don’t ship me or characters I’m cosplaying. I’m not interested with anyone who only INT to shipped with my ponies unless you’re OOMF.👍
+Don’t ship me or characters I’m cosplaying. I’m not interested with anyone who only INT to shipped with my ponies unless you’re OOMF burrps👍
 
 INTJ
 
 I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay
 
-Aster sucks
+
 Corny kin list + others [kinlist](https://kintypesz.straw.page)
 ____________________________
 
