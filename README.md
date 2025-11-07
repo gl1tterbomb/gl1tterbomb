@@ -28,7 +28,7 @@ I have ADHD/Autism spectrum /. And dyslexia. I have trouble with reading and oth
 
 Spanish is my mother tongue, and I was born in Puerto Rico
 
-Don’t ship me or characters I’m cosplaying. I’m not interested with anyone who only INT to shipped with my ponies unless you’re OOMF burrps👍
+
 
 INTJ
 
