@@ -67,7 +67,7 @@ Boostle, Halbarry, Oliver Queen/Hal Jordan, Wonder woman/Cheetah, Barry allen/Le
 
 • [Extra INFO;]
 
-Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭
+Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 I also joke about kins too
 
 __________________________________
 
