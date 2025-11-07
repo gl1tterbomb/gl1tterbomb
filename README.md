@@ -4,7 +4,6 @@ Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
 
 Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
 
-If you want to know more about me [Read me/patreon](https://www.patreon.com/c/arrowofliez/about)
 
 If you're uhm interest to see my arts.
 [Strawpage2](https://ang3lcakeart.straw.page/)   
@@ -88,8 +87,6 @@ Idk why I’m mentioning this but don’t ask me about my personal information a
 Extra;
 
 Dark/proshippers and antis are on thin ice. Ship wars sucks
-
-☆ - I don’t hate them, but most of my ex-friends.? Unless we talk about it, I'm here not trying to be their friend again, and I'm done giving out second chances;-;. I don't care if anyone is friends with them. Just respect their and mine boundaries.
 
 Dni list are basic ig
  
