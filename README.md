@@ -51,9 +51,9 @@ ____________________________
 
 ★ favorite characters? Hmmm, kinda hard question. I am very basic. My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). Wonderwoman, Bart Allen, Wally West, Ghostmaker, Ted Kord, Ice DC, Max lord, Blue bird/Harper DC, Damian wayne, Wonderman, Roy Harper, kon-el, Gentleman Ghost, Staric, Donna troy, Angel{x-men}, Raven, Starlord, Jaime Reyes, Atom[DC],Cyborg, Scott Summers, Hawkeye, Spiderman, Barry allen, Shockwave, Soundwave, Jetfire, Firestorm DC, Johnnystorm, Antman, Fire DC, Tony stark, Nightcrawler, Gambit, Black widow, Starscream, Captain America, Duke Thomas, Thundercracker, Sue storm, Hulk/Bruce Banner, Guy Gardner, Mister fantastic, Bulkhead, Winter Solider, Pietro/Peter, Question DC, much more.
 
-★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a Ship, crossovers, headcanons, and others. I also want to meet more selfshippers, you guys are very cool! As long yall don’t force ships or anything on me
+★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a AU,headcanon or others. I also want to meet more selfshippers, you guys are very cool!
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superhero media I liked that's not The Boys. Sorry, I'm not a huge fan of them. I'm mostly into Green Lantern and the Flash. JLI, too, and Doom Patrol. andd more DC related
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superhero media I liked that's not The Boys. I'm mostly into Green Lantern and the Flash. JLI, too, and Doom Patrol. andd more DC related
 
 __________________________
 
@@ -77,9 +77,9 @@ __________________________________
 
 [ BYI; ]
 
-♡ - DOUBLES; thinks Doubles? hmm.. I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that. I'm not trying to be mean. I still won’t int with Hal doubles unless we already friends. I also won’t int with friends doubles unless they’re comfortable and are okay with it.,I respect their wishes👍👍.
+♡ - DOUBLES; thinks Doubles? hmm.. I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.
 
-Idk why I’m mentioning this but don’t ask me about my personal information and anything else, such as deadname, mental, or any my personal. There multiple people keep asking.,;-; I'm NOT giving out my personal stuff to strangers, especially someone I've known for 9 days or less 7 months. I prefer to keep it private unless you are a trusted friend. Like, I get you trying to know me better, but it's just weird and uncomfortable when strangers ask me these types of questions. I'm fine with someone asking me where I'm from or some stuff like that. I’m also okay with people asking my actual age but asking me my deadname is weird.
+Idk why I’m mentioning this but don’t ask me about my personal information and anything else, such as deadname or any my personal. There multiple people keep asking.,;-; I'm NOT giving out my personal stuff to strangers, especially someone I've known for 9 days or less 7 months. I prefer to keep it private unless you are a trusted friend. Like, I get you trying to know me better, but it's just weird and uncomfortable when strangers ask me these types of questions. I'm fine with someone asking me where I'm from or some stuff like that. I’m also okay with people asking my actual age but asking me my deadname is weird.
 
 ☆ - People especially friends and ex friends who break their own DNI/boundaries just to harass a random player they don’t like. I don't care what your excuse is, I don't want to hear you're gonna harass/bully and death-threaten them. Keep it to yourself you’re hella weird. And people who disrespect others' boundaries. Joke or not. you’re not funny
 
