@@ -20,11 +20,11 @@ art by @kalamariboy in tumblr! They have amazing arts!
 
 ____________________________________
 
-Hello! My name is Aster, and I also go by other names, like Mou, Archer, Naomi, Harold/Hal. I'm fine with people calling me by any nicknames as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! My favorite colors are orange, blue, purple, and green. I am an artist and I love to draw a lot. I sometimes post my artworks on social media. My English is not really that great; I make some spelling mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everyone I don't know, so it would take me a while to interact/be more comfortable with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned, they stinks. I don't play Ponytown as much anymore. I only joined with friends I’m comfortable wi. I'm fine with INT and C+H.
+Hello! My name is Aster, and I also go by other names, like Mou, Archer, Naomi, Harold/Hal. I'm fine with people calling me by any nicknames as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! My favorite colors are orange, blue, purple, and green. I am an artist and I love to draw a lot. I sometimes post my artworks on social media. My English is not really that great; I make some spelling mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everyone I don't know, so it would take me a while to interact/be more comfortable with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned, they stinks. I don't play Ponytown as much anymore. I only joined with close friends. I'm fine with INT and C+H.
 
 [ Extra; ]
 
-I have ADHD/Autism spectrum /. And dyslexia. I have trouble with reading and other things, especially in my main language. I’m also struggling with social anxiety and socialization cues(I don't know if I'm spelling right), so I'll do the best I can. If I have upset you, made u uncomfortable, or anything like that, people do this often without telling me I did, and use it against me. Please please let me know I’m trying and I wanted to know what I did is wrong.😕 I may become clingy with the people I love, so please let me know if you ever feel uncomfortable with it.👍.
+I have ADHD/Autism spectrum /. And dyslexia. I have trouble with reading, writing, and other things, especially in my main language. I have like a horror grammar. I’m also struggling with social anxiety and socialization cues(I don't know if I'm spelling right), so I'll do the best I can. If I have upset you, made u uncomfortable, or anything like that, people do this often without telling me I did, and use it against me. Please please let me know I’m trying and I wanted to know what I did is wrong.😕 I may become clingy with the people I love, so please let me know if you ever feel uncomfortable with it.👍.
 
 Spanish is my mother tongue, and I was born in Puerto Rico
 
@@ -40,14 +40,14 @@ ____________________________
 
 [INT TIME/THINGS I LIKE: ]
 
-★ My friends, they’re amazing. I love gifting ponies or drawings for them.
+★ My friends,they’re amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
 
 
-★ - OCS! OCS are very cool; they are one of my favorite parts to create. I also make transformer oc and DC.
+★ - OCS! OCS are very cool; one of my favorite parts to create. I also make transformer and superhero ocs.
 
 ★ Shows I like - Villainous, Care Bears, Batman 2004/The Brave and the Bold, Njnjago, TT/TTG, MLP, more.
 
-★ favorite characters? Hmmm, kinda hard question. I am very basic. My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). Wonderwoman, Bart Allen, Wally West, Ghostmaker, Ted Kord, Ice DC, Max lord, Blue bird/Harper DC, Damian wayne, Wonderman, Roy Harper, kon-el, Gentleman Ghost, Staric, Donna troy, Angel{x-men}, Raven, Starlord, Jaime Reyes, Atom[DC],Cyborg, Scott Summers, Hawkeye, Spiderman, Barry allen, Shockwave, Soundwave, Jetfire, Firestorm DC, Johnnystorm, Antman, Fire DC, Tony stark, Nightcrawler, Gambit, Black widow, Starscream, Captain America, Duke Thomas, Thundercracker, Sue storm, Hulk/Bruce Banner, Guy Gardner, Mister fantastic, Bulkhead, Winter Solider, Pietro/Peter, Question DC, much more.
+★ favorite characters? Hmmm, kinda hard question. I am very basic. My favorites are Hal Jordan and Booster Gold.. (I'm his number #116 fan trust). Wonderwoman, Bart Allen, Wally West, Ghostmaker, Max lord, Blue bird/Harper, Damian wayne, Wonderman Marvel, Roy Harper, Gentleman Ghost, Staric, Donna troy, Angel{x-men}, Raven, Starlord, Jaime Reyes, Atom[DC],Cyborg, Scott Summers, Hawkeye, Spiderman, Soundwave, Firestorm DC, Johnnystorm, Antman, Tony stark, Nightcrawler, Gambit, Black widow, Starscream, Captain America, Duke Thomas, Thundercracker, Sue storm, Hulk/Bruce Banner, Guy Gardner, Mister fantastic, Bulkhead, Winter Solider, Pietro/Peter, Question DC, much more.
 
 ★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a AU,headcanon or others. I also want to meet more selfshippers, you guys are very cool!
 
@@ -77,7 +77,6 @@ __________________________________
 
 ♡ - DOUBLES; thinks Doubles? hmm.. I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.
 
-Idk why I’m mentioning this but don’t ask me about my personal information and anything else, such as deadname or any my personal. There multiple people keep asking.,;-; I'm NOT giving out my personal stuff to strangers, especially someone I've known for 9 days or less 7 months. I prefer to keep it private unless you are a trusted friend. Like, I get you trying to know me better, but it's just weird and uncomfortable when strangers ask me these types of questions. I'm fine with someone asking me where I'm from or some stuff like that. I’m also okay with people asking my actual age but asking me my deadname is weird.
 
 ☆ - People especially friends and ex friends who break their own DNI/boundaries just to harass a random player they don’t like. I don't care what your excuse is, I don't want to hear you're gonna harass/bully and death-threaten them. Keep it to yourself you’re hella weird. And people who disrespect others' boundaries. Joke or not. you’re not funny
 
