@@ -42,7 +42,6 @@ ____________________________
 
 ★ My friends, they’re amazing. I love gifting ponies or drawings for them.
 
-★ - More cringe friends plsss
 
 ★ - OCS! OCS are very cool; they are one of my favorite parts to create. I also make transformer oc and DC.
 
@@ -52,7 +51,7 @@ ____________________________
 
 ★- ships; I do also multi/crossover/rarepairs and OC/canon; I enjoy people yapping about their AU. interesting or not. I still won't judge, and I'll respect it. No matter whether it is a AU,headcanon or others. I also want to meet more selfshippers, you guys are very cool!
 
-★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superhero media I liked that's not The Boys. I'm mostly into Green Lantern and the Flash. JLI, too, and Doom Patrol. andd more DC related
+★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superhero media I liked. I'm mostly into Green Lantern and the Flash. JLI, too, and Doom Patrol. andd more DC related
 
 __________________________
 
@@ -68,7 +67,7 @@ Boostle, Halbarry, Oliver Queen/Hal Jordan, Wonder woman/Cheetah, Barry allen/Le
 
 • [Extra INFO;]
 
-☆ If I unhide/unblock you, that means I don't remember the reasons why, or maybe I moved on. I mostly hide people for 24 hours or more.
+Just so you know, I act cringe on purpose. if you don't like it, tell me👍
 
 __________________________________
 
