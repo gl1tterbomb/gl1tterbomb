@@ -91,7 +91,7 @@ Dark/proshippers and antis are on thin ice. Ship wars sucks
 
 ☆ - I don’t hate them, but most of my ex-friends.? Unless we talk about it, I'm here not trying to be their friend again, and I'm done giving out second chances;-;. I don't care if anyone is friends with them. Just respect their and mine boundaries.
 
-Dni list are basic.
+Dni list are basic ig
  
 
 
