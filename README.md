@@ -82,8 +82,6 @@ __________________________________
 
 ☆ Dramas. You can talk about it, but please don't drag me into one. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
 
-Extra;
-
 Dark/proshippers and antis are on thin ice. Ship wars sucks
 
 Dni list are basic ig
