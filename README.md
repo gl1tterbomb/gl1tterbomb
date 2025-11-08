@@ -1,3 +1,5 @@
+random stuff with friends. I remake it 👍 [randomscreenshots](https://randomscreenshots.straw.page) 
+
 My ata: [Atabook](https://haljordan.atabook.org/)
 
 Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
