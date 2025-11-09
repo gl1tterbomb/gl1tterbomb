@@ -34,7 +34,7 @@ Spanish is my mother tongue, and I was born in Puerto Rico
 
 INTJ
 
-I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay
+I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . You will also found me in comic area on 18+.
 
 
 Corny kin list + others [kinlist](https://kintypesz.straw.page)
