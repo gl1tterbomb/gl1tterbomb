@@ -33,8 +33,9 @@ Spanish is my mother tongue, and I was born in Puerto Rico
 
 
 INTJ
+Where can you find me? ;
 
-I stay in safe most of the time. You will found me sitting on Deltarune/Undertale or middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . You will also found me in comic area on 18+.
+Well I usually stay in safe most of the time. You will found me sitting on marvel/dc(for example, outside near the bakery; this area keep changing fandoms every months.) or Transformers, Deltarune/Undertale, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . On 18+, I will mostly hangout in comic area with friends.
 
 
 Corny kin list + others [kinlist](https://kintypesz.straw.page)
