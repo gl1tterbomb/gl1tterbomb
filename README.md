@@ -4,6 +4,7 @@ fun stuff I took with friends
 there's more in here
  [randomscreenshots](https://randomscreenshots.straw.page)
 ____________________________________
+INTRO - 
 
 Hello! My name is Aster, and I also go by other names, like Mou, Archer, Naomi, Harold/Hal. I'm fine with people calling me by any nicknames as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! My favorite colors are orange, blue, purple, and green. I am an artist and I love to draw a lot. I sometimes post my artworks on social media. My English is not really that great; I make some spelling mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everyone I don't know, so it would take me a while to interact/be more comfortable with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned, they stinks. I don't play Ponytown as much anymore. I only joined with close friends. I'm fine with INT and C+H.
 
@@ -21,6 +22,7 @@ Q - Where can you find me? ;
 
 Well I usually stay in safe most of the time. You will found me sitting on marvel/dc(If you don't know where it is at, outside near the bakery; this area keep changing fandoms every months.) or Transformers, Deltarune/Undertale, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . On 18+, I will mostly hangout in comic area with friends.
 
+Links -
 random stuff with friends. I remake it 👍 [randomscreenshots](https://randomscreenshots.straw.page) 
 
 My ata: [Atabook](https://haljordan.atabook.org/)
@@ -73,7 +75,7 @@ __________________________________
  
 
 
-☆ Dramas. You can talk about it, but please don't drag me into one unless its serious ig. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
+☆ Drama?. You can talk about it, but please don't drag me into one unless its something serious. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
 
