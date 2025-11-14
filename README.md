@@ -1,3 +1,5 @@
+Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
+
 fun stuff I took with friends
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/68ffe03ed9246626b1722437112adc79f9de9f49/IMG_7963.jpeg)
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/9ce2231eeef4a45d65b3d320bb8b5b24a3eddad6/IMG_7962.jpeg)
@@ -28,8 +30,6 @@ random stuff with friends. I remake it 👍 [randomscreenshots](https://randomsc
 My ata: [Atabook](https://haljordan.atabook.org/)
 
 Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
-
-Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
 
 
 If you're uhm interest to see my arts.
