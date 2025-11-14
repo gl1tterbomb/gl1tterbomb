@@ -40,7 +40,7 @@ ____________________________________
                                                                          Corny kin list + others            [kinlist](https://kintypesz.straw.page)
 ____________________________
 
-                                                                               ⠀⠀[INT TIME/THINGS I LIKE: ]
+                                                                               ⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀[INT TIME/THINGS I LIKE: ]
 
                                                - ★ First is my friends. They're cool and amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
 
