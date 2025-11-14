@@ -1,22 +1,6 @@
-random stuff with friends. I remake it 👍 [randomscreenshots](https://randomscreenshots.straw.page) 
-
-My ata: [Atabook](https://haljordan.atabook.org/)
-
-Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
-
-Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
-
-
-If you're uhm interest to see my arts.
-[Strawpage2](https://ang3lcakeart.straw.page/)   
-
-[Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
-
-art by @kalamariboy in tumblr! They have amazing arts!
-
 
 
 
@@ -38,6 +22,19 @@ Q - Where can you find me? ;
 
 Well I usually stay in safe most of the time. You will found me sitting on marvel/dc(If you don't know where it is at, outside near the bakery; this area keep changing fandoms every months.) or Transformers, Deltarune/Undertale, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . On 18+, I will mostly hangout in comic area with friends.
 
+random stuff with friends. I remake it 👍 [randomscreenshots](https://randomscreenshots.straw.page) 
+
+My ata: [Atabook](https://haljordan.atabook.org/)
+
+Corny kin list + others click here [kinlist](https://kintypesz.straw.page)
+
+Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page)  . I'm going remake my strawpage soon;-;
+
+
+If you're uhm interest to see my arts.
+[Strawpage2](https://ang3lcakeart.straw.page/)   
+
+[Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
 Corny kin list + others [kinlist](https://kintypesz.straw.page)
 ____________________________
@@ -75,8 +72,6 @@ Just so you know, I act cringe on purpose. if you don't like it, tell me👍  sa
 
 __________________________________
 
- ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
-
 [ BYI; ]
 
 ♡ - DOUBLES; thinks Doubles? hmm.. I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.  [ I'm aware that I don't own any of the characters; if you have a problem with me not liking doubles, idk just don't int? ]
@@ -85,6 +80,7 @@ __________________________________
 
 ☆ Dramas. You can talk about it, but please don't drag me into one unless its serious ig. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
 
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
- 
+![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
+
+art by @kalamariboy in tumblr! They have amazing arts!
  
