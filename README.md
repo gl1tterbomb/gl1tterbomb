@@ -1,8 +1,4 @@
-
-
-![image_alt](https://github.com/metaleaterr/metaleaterr/blob/4d4082f1cca119e035dd80fd18f28f5e1f6d71df/Green%20lantern%20and%20green%20arrow.jpeg)
-
-
+![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/68ffe03ed9246626b1722437112adc79f9de9f49/IMG_7963.jpeg)
 
 ____________________________________
 
