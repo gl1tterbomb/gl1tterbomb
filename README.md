@@ -83,6 +83,7 @@ __________________________________
  
 
 
+☆ Dramas. You can talk about it, but please don't drag me into one unless its serious ig. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
  
