@@ -58,10 +58,6 @@ __________________________
 
 ___________________________
 
-★ [SHIPS I LIKE];
-
-Boostle, Halbarry, Oliver Queen/Hal Jordan, Wonder woman/Cheetah, Barry allen/Leonard snart, Green Arrow/Black Canary,Ghostbat, Barry/Oliver Queen, Donna/Kori, Human Torch/Spiderman, BruTalia, Batgirl/Black Canary, Kylewally, Tim Drake/Anarky,, and much more.. multi shipper is cool;-;👍
-
 • [Extra INFO;]
 
 Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 
