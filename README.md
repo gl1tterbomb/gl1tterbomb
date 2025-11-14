@@ -1,7 +1,7 @@
 Here, if you wanna draw ⠀⠀⠀⠀
             [New Strawpage](https://jordanhal.straw.page) 
 
-          My ata -                     [Atabook](https://haljordan.atabook.org/)
+                    [Atabook](https://haljordan.atabook.org/)
 
 fun stuff I took with friends
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/68ffe03ed9246626b1722437112adc79f9de9f49/IMG_7963.jpeg)
