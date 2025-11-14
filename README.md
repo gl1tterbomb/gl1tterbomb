@@ -4,6 +4,7 @@ Here, if you wanna draw ⠀⠀⠀⠀
          [Atabook](https://haljordan.atabook.org/)
 
 fun stuff I took with friends
+![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/7f2229b20e7610c09721930a42240faaeb256d8b/IMG_7965.jpeg)
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/68ffe03ed9246626b1722437112adc79f9de9f49/IMG_7963.jpeg)
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/9ce2231eeef4a45d65b3d320bb8b5b24a3eddad6/IMG_7962.jpeg)
 there's more in here
