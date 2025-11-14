@@ -80,15 +80,6 @@ __________________________________
 [ BYI; ]
 
 ♡ - DOUBLES; thinks Doubles? hmm.. I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.  [ I'm aware that I don't own any of the characters; if you have a problem with me not liking doubles, idk just don't int? ]
-
-
-☆ - People especially friends n ex friends who break their own DNI/boundaries just to harass a random player they don’t like. I don't care what your excuse is, I don't want to hear you're gonna harass/bully and death-threaten them. Keep it to yourself you’re hella weird. And people who disrespect others' boundaries. Joke or not. you’re not funny
-
-☆ Dramas. You can talk about it, but please don't drag me into one. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
-
-Dark/proshippers and antis are on thin ice. Ship wars sucks
-
-Dni list are basic ig
  
 
 
