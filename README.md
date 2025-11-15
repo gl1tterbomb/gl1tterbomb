@@ -38,7 +38,7 @@ ____________________________________
 
                                     [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
-                                                                         Corny kin list + others            [kinlist](https://kintypesz.straw.page)
+                                                                                    Corny kin list + others            [kinlist](https://kintypesz.straw.page)
 ____________________________
 
                                                                                ⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀[INT TIME/THINGS I LIKE: ]
