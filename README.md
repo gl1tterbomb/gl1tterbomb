@@ -30,10 +30,10 @@ ____________________________________
 
       Well I usually stay in safe most of the time. You will found me sitting on marvel/dc(If you don't know where it is at, outside near the bakery; this area keep changing fandoms every months.) or Transformers, Deltarune/Undertale, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . On 18+, I will mostly hangout in comic area with friends.
 
-                                        **______________________________**
+                                        **___________________________________**
 
           ***[ Links ]*** -
- ------------------------------------                                                                     ⠀⠀ ⠀ ⠀⠀⠀[randomscreenshots](https://randomscreenshots.straw.page) 
+___________________________________                                                                    ⠀⠀ ⠀ ⠀⠀⠀[randomscreenshots](https://randomscreenshots.straw.page) 
 
      Corny kin list + others click here                               [kinlist](https://kintypesz.straw.page)
 
