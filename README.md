@@ -9,13 +9,13 @@ fun stuff I took with friends
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/9ce2231eeef4a45d65b3d320bb8b5b24a3eddad6/IMG_7962.jpeg)
 there's more in here
                                                            [randomscreenshots](https://randomscreenshots.straw.page)
-____________________________________
+**____________________________________**
                                                                                                                                ***[INTRO ]*** - 
 --------------------------------------
                                            Hello! My name is Aster, and I also go by other names, like Mou, Archer, Naomi, Harold/Hal. I'm fine with people calling me by any nicknames as long as it's not inappropriate. I have no idea how to introduce myself, but I'll try my best! My favorite colors are orange, blue, purple, and green. I am an artist and I love to draw a lot. I sometimes post my artworks on social media. My English is not really that great; I make some spelling mistakes, and my words often come off. Sorry if I confuse you. I'm kinda awkward around everyone I don't know, so it would take me a while to interact/be more comfortable with them. 🫠 Please be patient with me. My friends are very awesome. I lied, be warned, they stinks. I don't play Ponytown as much anymore. I only joined with close friends. I'm fine with INT and C+H.
 
           ***[ INFO; ]***
------------------------------------
+___________________________________ 
 
          - INT/C*H is allowed even if I don't have it in my name. everyone is welcome.                           
 
@@ -33,7 +33,7 @@ ____________________________________
                                         **___________________________________**
 
           ***[ Links ]*** -
-___________________________________                                                                    ⠀⠀ ⠀ ⠀⠀⠀[randomscreenshots](https://randomscreenshots.straw.page) 
+____________________________________                                                                    ⠀⠀ ⠀ ⠀⠀⠀[randomscreenshots](https://randomscreenshots.straw.page) 
 
      Corny kin list + others click here                               [kinlist](https://kintypesz.straw.page)
 
@@ -45,11 +45,10 @@ ___________________________________                 
 
                                                                                     Corny kin list + others            [kinlist](https://kintypesz.straw.page)
 
-                                        **______________________________**
+                                        **___________________________________**
 
                                                                                ⠀⠀⠀⠀***[INT TIME/THINGS I LIKE:]***
-
-   -------------------------------                                          - ★ First is my friends. They're cool and amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
+___________________________________                                           - ★ First is my friends. They're cool and amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
 
 
           ★ - OCS! OCS are very cool; one of my favorite parts to create. I also make transformer and superhero ocs.
@@ -62,18 +61,18 @@ ___________________________________                 
 
           ★ - I like to yap bout my interests. If you get tired of it, please let me know👍. Any superhero media I liked. I'm mostly into Green Lantern and the Flash. JLI, too, and Doom Patrol. andd more DC related
 
-**__________________________**
+**___________________________________**
 
       ***[FANDOM I AM IN]***
 
-   ------------------------------
+ ___________________________________ 
           ★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, Fnaf, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new], Haunted hotel[Also new to this fandom],sherlock holmes(I’m new here too) + Others!
 
-  ***___________________________***
+  ***___________________________________***
 
       ***[Extra INFO/BYI;]***
 
-    ----------------------------
+    ___________________________________ 
    
           Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 
 
