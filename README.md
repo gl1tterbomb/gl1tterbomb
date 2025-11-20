@@ -9,6 +9,7 @@ fun stuff I took with friends
 ![image_alt](https://github.com/gl1tterbomb/gl1tterbomb/blob/9ce2231eeef4a45d65b3d320bb8b5b24a3eddad6/IMG_7962.jpeg)
 there's more in here
                                                            [randomscreenshots](https://randomscreenshots.straw.page)_
+                                                          
                                                           _______________________________
                                                                                                                                ***[INTRO ]*** - 
 ------------------------------------
