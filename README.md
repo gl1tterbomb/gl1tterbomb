@@ -47,8 +47,9 @@ there's more in here
 
                                        
 
-                                                                               ⠀⠀⠀⠀***[INT TIME/THINGS I LIKE:]***
-                                          - ★ First is my friends. They're cool and amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
+                                                                               ⠀⠀
+                                       **[INT TIME/THINGS I LIKE:]**
+                                                                                                 - ★ First is my friends. They're cool and amazing. I love gifting ponies, drawings and sometimes buy stuff for them in their birthdays or christmas only if I'm rich enough
 
 
           ★ - OCS! OCS are very cool; one of my favorite parts to create. I also make transformer and superhero ocs.
