@@ -63,8 +63,9 @@ fun stuff I took with friends
       **[FANDOM I AM IN]**
 
   
-          ★ Rescue bots/Transformers, Marvel/DC, Octonauts, Undertale/Deltarune,Star Trek, Fnaf, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, house M.D(I'm new], Haunted hotel[Also new to this fandom],sherlock holmes(I’m new here too) + Others!
+          ★ Rescue bots/Transformers, Marvel, DC, Octonauts,Incredibles, Undertale, Deltarune, Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, + Others!
 
+New to; Hannibal,House M.D, Haunted hotel,Sherlock holmes,Brokeback mountain, Doctor who, Spooky month, and Dispatch
   
 
       **[Extra INFO/BYI;]**
@@ -73,7 +74,7 @@ fun stuff I took with friends
    
           Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 
 
-     ***♡ - [ DOUBLES ]***                                                                               Doubles? I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.  [ I'm aware that I don't own any of the characters; if you have a problem with me not liking doubles, idk just don't int? ]
+     ***♡ - [ DOUBLES ]***                                                                               Doubles? I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.  I'm aware that I don't own any of the characters; if you have a problem with me not being fan of doubles, idk just don't int?
 
                                              ☆ Drama?. You can talk about it, but please don't drag me into one unless its something serious. fy; If you have issues with me or my friends, talk to us instead of trying to cause a huge problem or block us. Simple as that. I’m tired of dealing with these types of people🥹
 
