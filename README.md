@@ -39,7 +39,6 @@ fun stuff I took with friends
 
                                     [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
-                                                                                    Corny kin list + others            [kinlist](https://kintypesz.straw.page)
 
                                        
 
@@ -63,16 +62,16 @@ fun stuff I took with friends
       **[FANDOM I AM IN]**
 
   
-          ★ Rescue bots/Transformers, Marvel, DC, Octonauts,Incredibles, Undertale, Deltarune, Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, + Others!
+          ★ Rescue bots/Transformers, Marvel, DC, Octonauts, Incredibles, Undertale, Deltarune, Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, + Others!
 
-New to; Hannibal,House M.D, Haunted hotel,Sherlock holmes,Brokeback mountain, Doctor who, Spooky month, and Dispatch
+New to; Hannibal, House M.D, Haunted Hotel, Sherlock Holmes, Brokeback Mountain, Doctor Who, Spooky month, and Dispatch
   
 
       **[Extra INFO/BYI;]**
 
      
    
-          Just so you know, I act cringe on purpose. if you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 
+          Just so you know, I act cringe on purpose. If you don't like it, tell me👍  saying this rn most people think I'm being serious I'm very sorry😭 
 
      ***♡ - [ DOUBLES ]***                                                                               Doubles? I don't really mind. I sometimes won’t interact with doubles of my ID/highest kins, I mean, depending on how I feel, unless we’re already friends. I carelessly about doubles, saying "ooh that's me". I do take my kintye seriously,;-; I thought it would be nice to believe that double lives in a different universe or something like that.  I'm aware that I don't own any of the characters; if you have a problem with me not being fan of doubles, idk just don't int?
 
