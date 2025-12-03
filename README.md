@@ -16,7 +16,6 @@ fun stuff I took with friends
 
          - INT/C*H is allowed even if I don't have it in my name. everyone is welcome.                           
 
-- I have ADHD/Autism spectrum /. And dyslexia. I have trouble with reading, writing, and other things, especially in my main language. I have like a horror grammar. I’m also struggling with social socialize cues, so I'll do the best I can. If I have upset you, made u uncomfortable, or anything like that, people do this often without telling me, and use it against me. Please please let me know I’m trying and I wanted to know what I did is wrong.😕 I may become clingy with the people I love, so please let me know if you ever feel uncomfortable with it.👍.
 
     - Spanish is my mother tongue, and I was born in Puerto Rico
 
