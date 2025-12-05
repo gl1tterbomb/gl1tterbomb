@@ -61,7 +61,7 @@ fun stuff I took with friends
       **[FANDOM I AM IN]**
 
   
-          ★ Rescue bots/Transformers, Marvel, DC, Octonauts, Incredibles, Undertale, Deltarune, Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, + Others!
+          ★ Rescue bots/Transformers, Marvel, DC, Octonauts, Incredibles, Undertale, Dandy's World, Deltarune, Star Trek, FNAF, Monster High, Good Omens, RDR2, Villainous, Ninjago, TMNT, + Others!
 
 New to; Hannibal, House M.D, Haunted Hotel, Sherlock Holmes, Brokeback Mountain, Doctor Who, Spooky month, and Dispatch
   
