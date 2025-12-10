@@ -30,13 +30,16 @@ fun stuff I took with friends
           ***[ Links ]*** -
                                                                     ⠀⠀ ⠀ ⠀⠀⠀[randomscreenshots](https://randomscreenshots.straw.page) 
 
-     Corny kin list + others click here                               [kinlist](https://kintypesz.straw.page)
+     Corny kin list + F/O                               [kinlist](https://kintypesz.straw.page)
 
 
-          If you're uhm interest to see my arts.
-     [Strawpage2](https://ang3lcakeart.straw.page/)   
+         
+      
 
-                                    [Tumblr](https://www.tumblr.com/blog/angelc3ke)
+             Most of my arts are founde here   
+         
+                 [Tiktok](www.tiktok.com/@.gl1tterbomb)        [Strawpage2](https://ang3lcakeart.straw.page/)
+                                   [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
 
                                        
