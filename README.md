@@ -37,7 +37,7 @@ Before we begin, My apologizes if my introduction is like long😅
           
          Most of my arts are founde here   
          
-                 [Tiktok](www.tiktok.com/@.gl1tterbomb) [Strawpage2](https://ang3lcakeart.straw.page)    [Tumblr](https://www.tumblr.com/blog/angelc3ke)
+                 [Tiktok](https://www.tiktok.com/@.gl1tterbomb) [Strawpage2](https://ang3lcakeart.straw.page)    [Tumblr](https://www.tumblr.com/blog/angelc3ke)
 
               
                                                                               
