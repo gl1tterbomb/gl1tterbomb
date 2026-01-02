@@ -22,7 +22,7 @@ Before we begin, My apologizes if my introduction is like long😅
     - Spanish is my mother tongue, and I was born in Puerto Rico
 
 
-          -INTJ
+          - IDC about inspire. You do you 🫡
 
    ***Q - Where can you find me? ;***
 
