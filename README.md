@@ -7,5 +7,5 @@ fun stuff I took with friends [randomscreenshots](https://randomscreenshots.stra
            Most of my arts are founde here   
          
                  [Tiktok](https://www.tiktok.com/@.gl1tterbomb)   
-         [Strawpage2](https://ang3lcakeart.straw.page)    [
+      [Strawpage2](https://ang3lcakeart.straw.page)  
                                      
