@@ -1,8 +1,6 @@
-Here,  if you wanna draw + Atabook ⠀⠀⠀⠀
+Here,  if you wanna draw + Atabook is in Strawpage ⠀⠀⠀⠀
             [New Strawpage](https://gl1tterbomb.straw.page)
-         [Atabook](https://haljordan.atabook.org/)
-  
-         
+        
 fun stuff I took with friends [randomscreenshots](https://randomscreenshots.straw.page)
      
 
