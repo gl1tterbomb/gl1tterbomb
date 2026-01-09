@@ -1,5 +1,5 @@
 Here,  if you wanna draw + Atabook is in Strawpage ⠀⠀⠀⠀
-            [New Strawpage](https://gl1tterbomb.straw.page)
+       [New Strawpage](https://gl1tterbomb.straw.page)
         
 fun stuff I took with friends [randomscreenshots](https://randomscreenshots.straw.page)
      
