@@ -1,2 +1,2 @@
 
-safe server, 18+ and sometime I go on spanish server with my friend
+Hiii I stay in safe or 18+  most of the time. sometimes I go on spanish with my friends. On safe, You will found me sitting on marvel/dc(If you don't know where it is at, outside near the bakery; this area keep changing fandoms every months.) or Transformers, Deltarune/Undertale, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. Most of time I am alone, I sometimes walk around the map or stay on an island when I'm bored, or do some random roleplay or something? No clue? okay . On 18+, I will mostly hangout in comic area with friends.
